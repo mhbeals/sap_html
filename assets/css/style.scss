@@ -1115,16 +1115,19 @@ td:last-child {
 a {
 	color: #222;
 	text-decoration: none;
+	border-bottom: none;
 }
 
 a:focus {
 	outline: thin dotted;
+	border-bottom: none;
 }
 
 a:hover,
 a:active {
 	color: #000;
 	outline: 0;
+	border-bottom: none;
 
 }
 
@@ -1142,6 +1145,7 @@ a:active {
 	transition: color 80ms ease-in, -webkit-box-shadow 130ms ease-in-out;
 	transition: color 80ms ease-in, box-shadow 130ms ease-in-out;
 	transition: color 80ms ease-in, box-shadow 130ms ease-in-out, -webkit-box-shadow 130ms ease-in-out;
+	border-bottom: none;
 }
 
 .entry-title a,
@@ -1173,6 +1177,7 @@ a .nav-title,
 	transition: color 80ms ease-in, -webkit-box-shadow 130ms ease-in-out;
 	transition: color 80ms ease-in, box-shadow 130ms ease-in-out;
 	transition: color 80ms ease-in, box-shadow 130ms ease-in-out, -webkit-box-shadow 130ms ease-in-out;
+	border-bottom: none;
 }
 
 .entry-content a:focus,
@@ -1226,6 +1231,7 @@ a:hover .nav-title,
 	color: #000;
 	-webkit-box-shadow: inset 0 0 0 rgba(0, 0, 0, 0), 0 3px 0 rgba(0, 0, 0, 1);
 	box-shadow: inset 0 0 0 rgba(0, 0, 0, 0), 0 3px 0 rgba(0, 0, 0, 1);
+	border-bottom: none;
 }
 
 /* Fixes linked images */
@@ -1233,11 +1239,13 @@ a:hover .nav-title,
 .widget a img {
 	-webkit-box-shadow: 0 0 0 8px #fff;
 	box-shadow: 0 0 0 8px #fff;
+	border-bottom: none;
 }
 
 .post-navigation a:focus .icon,
 .post-navigation a:hover .icon {
 	color: #222;
+	border-bottom: none;
 }
 
 /*--------------------------------------------------------------
