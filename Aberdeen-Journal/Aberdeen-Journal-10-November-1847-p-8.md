@@ -1,0 +1,57 @@
+##[*Aberdeen Journal*, 10 November 1847, p. 8](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-10-November-1847-p-8)
+
+### Content from this page previously appeared in:
++ [*Trewman's Exeter Flying Post*, 21 October 1847, p. 4](https://mhbeals.github.io/sap_html/Trewman's-Exeter-Flying-Post/Trewman's-Exeter-Flying-Post-21-October-1847-p-4)
++ [*Caledonian Mercury*, 25 October 1847, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-25-October-1847-p-4)
++ [*Liverpool Mercury*, 26 October 1847, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-26-October-1847-p-7)
++ [*Caledonian Mercury*, 28 October 1847, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-28-October-1847-p-4)
++ [*Trewman's Exeter Flying Post*, 28 October 1847, p. 4](https://mhbeals.github.io/sap_html/Trewman's-Exeter-Flying-Post/Trewman's-Exeter-Flying-Post-28-October-1847-p-4)
++ [*Bristol Mercury*, 30 October 1847, p. 7](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-30-October-1847-p-7)
++ [*Hampshire Portsmouth Telegraph*, 30 October 1847, p. 4](https://mhbeals.github.io/sap_html/Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-30-October-1847-p-4)
++ [*Lloyd's Illustrated Newspaper*, 31 October 1847, p. 12](https://mhbeals.github.io/sap_html/Lloyd's-Illustrated-Newspaper/Lloyd's-Illustrated-Newspaper-31-October-1847-p-12)
++ [*Caledonian Mercury*, 1 November 1847, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-1-November-1847-p-4)
++ [*Daily News*, 1 November 1847, p. 3](https://mhbeals.github.io/sap_html/Daily-News/Daily-News-1-November-1847-p-3)
++ [*Glasgow Herald*, 1 November 1847, p. 4](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-1-November-1847-p-4)
++ [*Liverpool Mercury*, 2 November 1847, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-2-November-1847-p-7)
++ [*The Times*, 2 November 1847, p. 5](https://mhbeals.github.io/sap_html/The-Times/The-Times-2-November-1847-p-5)
++ [*Derby Mercury*, 3 November 1847, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-3-November-1847-p-4)
++ [*Caledonian Mercury*, 4 November 1847, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-4-November-1847-p-4)
++ [*Trewman's Exeter Flying Post*, 4 November 1847, p. 4](https://mhbeals.github.io/sap_html/Trewman's-Exeter-Flying-Post/Trewman's-Exeter-Flying-Post-4-November-1847-p-4)
++ [*Hull Packet*, 5 November 1847, p. 3](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-5-November-1847-p-3)
++ [*Hull Packet*, 5 November 1847, p. 7](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-5-November-1847-p-7)
++ [*Newcastle Courant*, 5 November 1847, p. 4](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-5-November-1847-p-4)
++ [*Newcastle Courant*, 5 November 1847, p. 8](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-5-November-1847-p-8)
++ [*Bristol Mercury*, 6 November 1847, p. 7](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-6-November-1847-p-7)
++ [*Freeman's Journal*, 6 November 1847, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-6-November-1847-p-2)
++ [*Hampshire Portsmouth Telegraph*, 6 November 1847, p. 4](https://mhbeals.github.io/sap_html/Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-6-November-1847-p-4)
++ [*Ipswich Journal*, 6 November 1847, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-6-November-1847-p-4)
++ [*Preston Chronicle*, 6 November 1847, p. 7](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-6-November-1847-p-7)
++ [*Lloyd's Illustrated Newspaper*, 7 November 1847, p. 12](https://mhbeals.github.io/sap_html/Lloyd's-Illustrated-Newspaper/Lloyd's-Illustrated-Newspaper-7-November-1847-p-12)
++ [*The Era*, 7 November 1847, p. 7](https://mhbeals.github.io/sap_html/The-Era/The-Era-7-November-1847-p-7)
++ [*Glasgow Herald*, 8 November 1847, p. 4](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-8-November-1847-p-4)
++ [*Liverpool Mercury*, 9 November 1847, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-9-November-1847-p-7)### Content from this page subsequently appeared in:
++ [*Caledonian Mercury*, 11 November 1847, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-11-November-1847-p-4)
++ [*Freeman's Journal*, 11 November 1847, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-11-November-1847-p-4)
++ [*Hull Packet*, 12 November 1847, p. 3](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-12-November-1847-p-3)
++ [*Newcastle Courant*, 12 November 1847, p. 8](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-12-November-1847-p-8)
++ [*Lloyd's Illustrated Newspaper*, 14 November 1847, p. 12](https://mhbeals.github.io/sap_html/Lloyd's-Illustrated-Newspaper/Lloyd's-Illustrated-Newspaper-14-November-1847-p-12)
++ [*Liverpool Mercury*, 16 November 1847, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-16-November-1847-p-7)
++ [*Trewman's Exeter Flying Post*, 18 November 1847, p. 4](https://mhbeals.github.io/sap_html/Trewman's-Exeter-Flying-Post/Trewman's-Exeter-Flying-Post-18-November-1847-p-4)
++ [*Liverpool Mercury*, 19 November 1847, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-19-November-1847-p-7)
++ [*Hull Packet*, 19 November 1847, p. 3](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-19-November-1847-p-3)
++ [*Bristol Mercury*, 20 November 1847, p. 7](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-20-November-1847-p-7)
++ [*Bristol Mercury*, 20 November 1847, p. 8](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-20-November-1847-p-8)
++ [*Liverpool Mercury*, 23 November 1847, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-23-November-1847-p-7)
++ [*Trewman's Exeter Flying Post*, 25 November 1847, p. 4](https://mhbeals.github.io/sap_html/Trewman's-Exeter-Flying-Post/Trewman's-Exeter-Flying-Post-25-November-1847-p-4)
++ [*Liverpool Mercury*, 26 November 1847, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-26-November-1847-p-7)
++ [*Bristol Mercury*, 27 November 1847, p. 7](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-27-November-1847-p-7)
++ [*Lloyd's Illustrated Newspaper*, 28 November 1847, p. 12](https://mhbeals.github.io/sap_html/Lloyd's-Illustrated-Newspaper/Lloyd's-Illustrated-Newspaper-28-November-1847-p-12)
++ [*Liverpool Mercury*, 30 November 1847, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-30-November-1847-p-7)
+                    
+# Citation: 
+
+Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.0.1.* 2 June 2017. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
+                    
+# Nota Bona
+
+Bibliometric data is time consuming to produce but benefits us all. Please remember to cite or acknowledge this and any other bibliometric data you use in your research. All data is available CC-BY 4.0 at [https://github.com/mhbeals/sap_reprints](https://github.com/mhbeals/sap_reprints)

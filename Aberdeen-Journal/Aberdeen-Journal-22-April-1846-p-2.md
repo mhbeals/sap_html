@@ -1,0 +1,55 @@
+##[*Aberdeen Journal*, 22 April 1846, p. 2](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-22-April-1846-p-2)
+
+### Content from this page previously appeared in:
++ [*Freeman's Journal*, 1 April 1846, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-1-April-1846-p-2)
++ [*Caledonian Mercury*, 2 April 1846, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-2-April-1846-p-4)
++ [*Glasgow Herald*, 3 April 1846, p. 4](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-3-April-1846-p-4)
++ [*Newcastle Courant*, 3 April 1846, p. 6](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-3-April-1846-p-6)
++ [*Caledonian Mercury*, 6 April 1846, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-6-April-1846-p-4)
++ [*Glasgow Herald*, 6 April 1846, p. 4](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-6-April-1846-p-4)
++ [*Caledonian Mercury*, 9 April 1846, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-9-April-1846-p-4)
++ [*Glasgow Herald*, 10 April 1846, p. 4](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-10-April-1846-p-4)
++ [*Caledonian Mercury*, 13 April 1846, p. 3](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-13-April-1846-p-3)
++ [*Caledonian Mercury*, 13 April 1846, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-13-April-1846-p-4)
++ [*Caledonian Mercury*, 16 April 1846, p. 2](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-16-April-1846-p-2)
++ [*Caledonian Mercury*, 16 April 1846, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-16-April-1846-p-4)
++ [*Daily News*, 16 April 1846, p. 2](https://mhbeals.github.io/sap_html/Daily-News/Daily-News-16-April-1846-p-2)
++ [*Freeman's Journal*, 17 April 1846, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-17-April-1846-p-2)
++ [*Glasgow Herald*, 17 April 1846, p. 4](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-17-April-1846-p-4)
++ [*Manchester Times*, 17 April 1846, p. 6](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-17-April-1846-p-6)
++ [*Morning Chronicle*, 17 April 1846, p. 3](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-17-April-1846-p-3)
++ [*Newcastle Courant*, 17 April 1846, p. 5](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-17-April-1846-p-5)
++ [*The Times*, 17 April 1846, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-17-April-1846-p-2)
++ [*Examiner*, 18 April 1846, p. 9](https://mhbeals.github.io/sap_html/Examiner/Examiner-18-April-1846-p-9)
++ [*Ipswich Journal*, 18 April 1846, p. 3](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-18-April-1846-p-3)
++ [*Lloyd's Illustrated Newspaper*, 19 April 1846, p. 2](https://mhbeals.github.io/sap_html/Lloyd's-Illustrated-Newspaper/Lloyd's-Illustrated-Newspaper-19-April-1846-p-2)
++ [*Caledonian Mercury*, 20 April 1846, p. 3](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-20-April-1846-p-3)
++ [*Caledonian Mercury*, 20 April 1846, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-20-April-1846-p-4)
++ [*Daily News*, 20 April 1846, p. 3](https://mhbeals.github.io/sap_html/Daily-News/Daily-News-20-April-1846-p-3)
++ [*Glasgow Herald*, 20 April 1846, p. 1](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-20-April-1846-p-1)
++ [*Glasgow Herald*, 20 April 1846, p. 2](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-20-April-1846-p-2)
++ [*Glasgow Herald*, 20 April 1846, p. 3](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-20-April-1846-p-3)
++ [*Glasgow Herald*, 20 April 1846, p. 4](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-20-April-1846-p-4)### Content from this page subsequently appeared in:
++ [*Caledonian Mercury*, 23 April 1846, p. 1](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-23-April-1846-p-1)
++ [*Caledonian Mercury*, 23 April 1846, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-23-April-1846-p-4)
++ [*Glasgow Herald*, 24 April 1846, p. 1](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-24-April-1846-p-1)
++ [*Glasgow Herald*, 24 April 1846, p. 4](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-24-April-1846-p-4)
++ [*Caledonian Mercury*, 27 April 1846, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-27-April-1846-p-4)
++ [*Daily News*, 27 April 1846, p. 2](https://mhbeals.github.io/sap_html/Daily-News/Daily-News-27-April-1846-p-2)
++ [*Glasgow Herald*, 27 April 1846, p. 1](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-27-April-1846-p-1)
++ [*Freeman's Journal*, 29 April 1846, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-29-April-1846-p-2)
++ [*Glasgow Herald*, 1 May 1846, p. 4](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-1-May-1846-p-4)
++ [*Bristol Mercury*, 2 May 1846, p. 7](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-2-May-1846-p-7)
++ [*Caledonian Mercury*, 4 May 1846, p. 3](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-4-May-1846-p-3)
++ [*Glasgow Herald*, 4 May 1846, p. 4](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-4-May-1846-p-4)
++ [*Freeman's Journal*, 8 May 1846, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-8-May-1846-p-2)
++ [*Glasgow Herald*, 8 May 1846, p. 4](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-8-May-1846-p-4)
++ [*Caledonian Mercury*, 11 May 1846, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-11-May-1846-p-4)
+                    
+# Citation: 
+
+Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.0.1.* 2 June 2017. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
+                    
+# Nota Bona
+
+Bibliometric data is time consuming to produce but benefits us all. Please remember to cite or acknowledge this and any other bibliometric data you use in your research. All data is available CC-BY 4.0 at [https://github.com/mhbeals/sap_reprints](https://github.com/mhbeals/sap_reprints)

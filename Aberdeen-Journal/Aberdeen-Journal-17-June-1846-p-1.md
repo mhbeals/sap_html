@@ -1,0 +1,63 @@
+##[*Aberdeen Journal*, 17 June 1846, p. 1](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-17-June-1846-p-1)
+
+### Content from this page previously appeared in:
++ [*Glasgow Herald*, 29 May 1846, p. 3](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-29-May-1846-p-3)
++ [*Bristol Mercury*, 30 May 1846, p. 3](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-30-May-1846-p-3)
++ [*Preston Chronicle*, 30 May 1846, p. 1](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-30-May-1846-p-1)
++ [*The Era*, 31 May 1846, p. 16](https://mhbeals.github.io/sap_html/The-Era/The-Era-31-May-1846-p-16)
++ [*Glasgow Herald*, 1 June 1846, p. 3](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-1-June-1846-p-3)
++ [*Preston Chronicle*, 6 June 1846, p. 8](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-6-June-1846-p-8)
++ [*Lloyd's Illustrated Newspaper*, 7 June 1846, p. 11](https://mhbeals.github.io/sap_html/Lloyd's-Illustrated-Newspaper/Lloyd's-Illustrated-Newspaper-7-June-1846-p-11)
++ [*The Era*, 7 June 1846, p. 16](https://mhbeals.github.io/sap_html/The-Era/The-Era-7-June-1846-p-16)
++ [*Trewman's Exeter Flying Post*, 11 June 1846, p. 1](https://mhbeals.github.io/sap_html/Trewman's-Exeter-Flying-Post/Trewman's-Exeter-Flying-Post-11-June-1846-p-1)
++ [*Glasgow Herald*, 12 June 1846, p. 3](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-12-June-1846-p-3)
++ [*Northern Star*, 13 June 1846, p. 20](https://mhbeals.github.io/sap_html/Northern-Star/Northern-Star-13-June-1846-p-20)
++ [*Preston Chronicle*, 13 June 1846, p. 1](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-13-June-1846-p-1)
++ [*The Era*, 14 June 1846, p. 16](https://mhbeals.github.io/sap_html/The-Era/The-Era-14-June-1846-p-16)
++ [*Caledonian Mercury*, 15 June 1846, p. 1](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-15-June-1846-p-1)
++ [*Freeman's Journal*, 15 June 1846, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-15-June-1846-p-1)
++ [*Glasgow Herald*, 15 June 1846, p. 3](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-15-June-1846-p-3)
++ [*Belfast News-Letter*, 16 June 1846, p. 3](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-16-June-1846-p-3)
++ [*NorthWales Chronicle*, 16 June 1846, p. 2](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-16-June-1846-p-2)### Content from this page simeltaneously appeared in:
++ [*Freeman's Journal*, 17 June 1846, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-17-June-1846-p-1)
++ [*Derby Mercury*, 17 June 1846, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-17-June-1846-p-1)### Content from this page subsequently appeared in:
++ [*Caledonian Mercury*, 18 June 1846, p. 1](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-18-June-1846-p-1)
++ [*Freeman's Journal*, 19 June 1846, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-19-June-1846-p-1)
++ [*Belfast News-Letter*, 19 June 1846, p. 3](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-19-June-1846-p-3)
++ [*Hull Packet*, 19 June 1846, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-19-June-1846-p-2)
++ [*Newcastle Courant*, 19 June 1846, p. 5](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-19-June-1846-p-5)
++ [*Examiner*, 20 June 1846, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-20-June-1846-p-14)
++ [*Preston Chronicle*, 20 June 1846, p. 1](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-20-June-1846-p-1)
++ [*The Era*, 21 June 1846, p. 14](https://mhbeals.github.io/sap_html/The-Era/The-Era-21-June-1846-p-14)
++ [*The Era*, 21 June 1846, p. 15](https://mhbeals.github.io/sap_html/The-Era/The-Era-21-June-1846-p-15)
++ [*Freeman's Journal*, 22 June 1846, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-22-June-1846-p-1)
++ [*Glasgow Herald*, 22 June 1846, p. 3](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-22-June-1846-p-3)
++ [*Freeman's Journal*, 24 June 1846, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-24-June-1846-p-1)
++ [*Derby Mercury*, 24 June 1846, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-24-June-1846-p-1)
++ [*Trewman's Exeter Flying Post*, 25 June 1846, p. 1](https://mhbeals.github.io/sap_html/Trewman's-Exeter-Flying-Post/Trewman's-Exeter-Flying-Post-25-June-1846-p-1)
++ [*Freeman's Journal*, 26 June 1846, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-26-June-1846-p-1)
++ [*Glasgow Herald*, 26 June 1846, p. 3](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-26-June-1846-p-3)
++ [*Hull Packet*, 26 June 1846, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-26-June-1846-p-2)
++ [*Newcastle Courant*, 26 June 1846, p. 6](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-26-June-1846-p-6)
++ [*Preston Chronicle*, 27 June 1846, p. 1](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-27-June-1846-p-1)
++ [*The Era*, 28 June 1846, p. 15](https://mhbeals.github.io/sap_html/The-Era/The-Era-28-June-1846-p-15)
++ [*Freeman's Journal*, 29 June 1846, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-29-June-1846-p-1)
++ [*Glasgow Herald*, 29 June 1846, p. 3](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-29-June-1846-p-3)
++ [*Daily News*, 1 July 1846, p. 2](https://mhbeals.github.io/sap_html/Daily-News/Daily-News-1-July-1846-p-2)
++ [*Daily News*, 1 July 1846, p. 7](https://mhbeals.github.io/sap_html/Daily-News/Daily-News-1-July-1846-p-7)
++ [*Freeman's Journal*, 1 July 1846, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-1-July-1846-p-1)
++ [*Derby Mercury*, 1 July 1846, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-1-July-1846-p-1)
++ [*Freeman's Journal*, 3 July 1846, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-3-July-1846-p-1)
++ [*Hull Packet*, 3 July 1846, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-3-July-1846-p-1)
++ [*Preston Chronicle*, 4 July 1846, p. 1](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-4-July-1846-p-1)
++ [*The Era*, 5 July 1846, p. 15](https://mhbeals.github.io/sap_html/The-Era/The-Era-5-July-1846-p-15)
++ [*Freeman's Journal*, 6 July 1846, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-6-July-1846-p-1)
++ [*Freeman's Journal*, 8 July 1846, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-8-July-1846-p-1)
+                    
+# Citation: 
+
+Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.0.1.* 2 June 2017. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
+                    
+# Nota Bona
+
+Bibliometric data is time consuming to produce but benefits us all. Please remember to cite or acknowledge this and any other bibliometric data you use in your research. All data is available CC-BY 4.0 at [https://github.com/mhbeals/sap_reprints](https://github.com/mhbeals/sap_reprints)
