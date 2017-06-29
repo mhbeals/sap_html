@@ -54,16 +54,18 @@ a {
 	background-color: transparent;
 	-webkit-text-decoration-skip: objects;
 	text-decoration: none;
+	border-bottom: none;
 }
 
 a:active,
 a:hover {
 	outline-width: 0;
 	font-weight:bold;
+	border-bottom: none;
 }
 
 abbr[title] {
-	border-bottom: 1px #767676 dotted;
+	border-bottom: none;
 	text-decoration: none;
 }
 
