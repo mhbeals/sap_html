@@ -1,9 +1,11 @@
-##[*Aberdeen Journal*, 1 April 1807, p. 1](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-1-April-1807-p-1)
+## [*Aberdeen Journal*, 1 April 1807, p. 1](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-1-April-1807-p-1)
 
 ### Content from this page previously appeared in:
 + [*Ipswich Journal*, 14 March 1807, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-14-March-1807-p-4)
 + [*Caledonian Mercury*, 16 March 1807, p. 1](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-16-March-1807-p-1)
-+ [*Ipswich Journal*, 28 March 1807, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-28-March-1807-p-4)### Content from this page subsequently appeared in:
++ [*Ipswich Journal*, 28 March 1807, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-28-March-1807-p-4)
+
+### Content from this page subsequently appeared in:
 + [*Ipswich Journal*, 4 April 1807, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-4-April-1807-p-4)
 + [*Jackson's Oxford Journal*, 11 April 1807, p. 1](https://mhbeals.github.io/sap_html/Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-11-April-1807-p-1)
                     
