@@ -1,8 +1,8 @@
 # *Derby Mercury*, 7 June 1804, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 31 May 1804, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-31-May-1804-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Jackson's Oxford Journal*, 2 June 1804, p. 2](https://mhbeals.github.io/sap_html/Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-2-June-1804-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-31-May-1804-p-4)*Morning Chronicle*, 31 May 1804, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-2-June-1804-p-2)*Jackson's Oxford Journal*, 2 June 1804, p. 2  
 
 
 # Citation: 

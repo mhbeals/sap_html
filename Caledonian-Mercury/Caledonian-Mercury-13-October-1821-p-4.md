@@ -1,13 +1,13 @@
 # *Caledonian Mercury*, 13 October 1821, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Trewman's Exeter Flying Post*, 4 October 1821, p. 2](https://mhbeals.github.io/sap_html/Trewman's-Exeter-Flying-Post/Trewman's-Exeter-Flying-Post-4-October-1821-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 8 October 1821, p. 2](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-8-October-1821-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 8 October 1821, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-8-October-1821-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 10 October 1821, p. 2](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-10-October-1821-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewman's-Exeter-Flying-Post/Trewman's-Exeter-Flying-Post-4-October-1821-p-2)*Trewman's Exeter Flying Post*, 4 October 1821, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-8-October-1821-p-2)*Glasgow Herald*, 8 October 1821, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-8-October-1821-p-2)*The Times*, 8 October 1821, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-10-October-1821-p-2)*Aberdeen Journal*, 10 October 1821, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 14 October 1821, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-14-October-1821-p-11)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-14-October-1821-p-11)*Examiner*, 14 October 1821, p. 11  
 
 
 # Citation: 

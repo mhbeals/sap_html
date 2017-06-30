@@ -1,9 +1,9 @@
 # *The Times*, 7 December 1810, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 8 December 1810, p. 14](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-8-December-1810-p-14)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 8 December 1810, p. 15](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-8-December-1810-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Trewman's Exeter Flying Post*, 13 December 1810, p. 3](https://mhbeals.github.io/sap_html/Trewman's-Exeter-Flying-Post/Trewman's-Exeter-Flying-Post-13-December-1810-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-8-December-1810-p-14)*Cobbet's Weekly Political Register*, 8 December 1810, p. 14  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-8-December-1810-p-15)*Cobbet's Weekly Political Register*, 8 December 1810, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewman's-Exeter-Flying-Post/Trewman's-Exeter-Flying-Post-13-December-1810-p-3)*Trewman's Exeter Flying Post*, 13 December 1810, p. 3  
 
 
 # Citation: 

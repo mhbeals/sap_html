@@ -1,10 +1,10 @@
 # *Caledonian Mercury*, 19 September 1811, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 17 September 1811, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-17-September-1811-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-17-September-1811-p-4)*Hull Packet*, 17 September 1811, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Jackson's Oxford Journal*, 28 September 1811, p. 4](https://mhbeals.github.io/sap_html/Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-28-September-1811-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-28-September-1811-p-4)*Jackson's Oxford Journal*, 28 September 1811, p. 4  
 
 
 # Citation: 

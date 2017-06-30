@@ -1,10 +1,10 @@
 # *The Times*, 5 December 1820, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 8 December 1820, p. 8](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-8-December-1820-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 9 December 1820, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-9-December-1820-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 10 December 1820, p. 10](https://mhbeals.github.io/sap_html/Examiner/Examiner-10-December-1820-p-10)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 10 December 1820, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-10-December-1820-p-11)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-8-December-1820-p-8)*Liverpool Mercury*, 8 December 1820, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freeman's-Journal/Freeman's-Journal-9-December-1820-p-2)*Freeman's Journal*, 9 December 1820, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-10-December-1820-p-10)*Examiner*, 10 December 1820, p. 10  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-10-December-1820-p-11)*Examiner*, 10 December 1820, p. 11  
 
 
 # Citation: 

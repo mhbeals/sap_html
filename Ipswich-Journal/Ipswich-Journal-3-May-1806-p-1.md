@@ -1,8 +1,8 @@
 # *Ipswich Journal*, 3 May 1806, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Jackson's Oxford Journal*, 17 May 1806, p. 3](https://mhbeals.github.io/sap_html/Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-17-May-1806-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 24 May 1806, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-24-May-1806-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-17-May-1806-p-3)*Jackson's Oxford Journal*, 17 May 1806, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-24-May-1806-p-3)*Newcastle Courant*, 24 May 1806, p. 3  
 
 
 # Citation: 

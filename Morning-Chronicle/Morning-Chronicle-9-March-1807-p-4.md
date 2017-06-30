@@ -1,8 +1,8 @@
 # *Morning Chronicle*, 9 March 1807, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 26 February 1807, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-26-February-1807-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 28 February 1807, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-28-February-1807-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-26-February-1807-p-2)*Derby Mercury*, 26 February 1807, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-28-February-1807-p-4)*The Times*, 28 February 1807, p. 4  
 
 
 # Citation: 

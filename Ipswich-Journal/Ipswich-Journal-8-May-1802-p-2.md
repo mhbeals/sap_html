@@ -1,16 +1,16 @@
 # *Ipswich Journal*, 8 May 1802, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 5 May 1802, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-5-May-1802-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 6 May 1802, p. 3](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-6-May-1802-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-5-May-1802-p-3)*The Times*, 5 May 1802, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-6-May-1802-p-3)*Morning Chronicle*, 6 May 1802, p. 3  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 8 May 1802, p. 3](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-8-May-1802-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Jackson's Oxford Journal*, 8 May 1802, p. 2](https://mhbeals.github.io/sap_html/Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-8-May-1802-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-8-May-1802-p-3)*Caledonian Mercury*, 8 May 1802, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-8-May-1802-p-2)*Jackson's Oxford Journal*, 8 May 1802, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 12 May 1802, p. 2](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-12-May-1802-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 13 May 1802, p. 3](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-13-May-1802-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-12-May-1802-p-2)*Aberdeen Journal*, 12 May 1802, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-13-May-1802-p-3)*Derby Mercury*, 13 May 1802, p. 3  
 
 
 # Citation: 

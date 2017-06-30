@@ -1,10 +1,10 @@
 # *Liverpool Mercury*, 25 June 1813, p. 5  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 19 June 1813, p. 1](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-19-June-1813-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-19-June-1813-p-1)*Ipswich Journal*, 19 June 1813, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 26 June 1813, p. 1](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-26-June-1813-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-26-June-1813-p-1)*Ipswich Journal*, 26 June 1813, p. 1  
 
 
 # Citation: 

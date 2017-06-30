@@ -1,8 +1,8 @@
 # *Hampshire Portsmouth Telegraph*, 1 April 1811, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 25 March 1811, p. 1](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-25-March-1811-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 30 March 1811, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-30-March-1811-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-25-March-1811-p-1)*Caledonian Mercury*, 25 March 1811, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-30-March-1811-p-4)*Ipswich Journal*, 30 March 1811, p. 4  
 
 
 # Citation: 

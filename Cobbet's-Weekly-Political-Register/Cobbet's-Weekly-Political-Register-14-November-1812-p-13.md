@@ -1,8 +1,8 @@
 # *Cobbet's Weekly Political Register*, 14 November 1812, p. 13  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 7 November 1812, p. 3](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-7-November-1812-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 13 November 1812, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-13-November-1812-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-7-November-1812-p-3)*Leeds Mercury*, 7 November 1812, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-13-November-1812-p-2)*Morning Chronicle*, 13 November 1812, p. 2  
 
 
 # Citation: 

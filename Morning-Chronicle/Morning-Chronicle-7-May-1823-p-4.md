@@ -1,22 +1,22 @@
 # *Morning Chronicle*, 7 May 1823, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 24 April 1823, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-24-April-1823-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 28 April 1823, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-28-April-1823-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 2 May 1823, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-2-May-1823-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 3 May 1823, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-3-May-1823-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 5 May 1823, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-5-May-1823-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-24-April-1823-p-4)*The Times*, 24 April 1823, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-28-April-1823-p-4)*The Times*, 28 April 1823, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-2-May-1823-p-4)*The Times*, 2 May 1823, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-3-May-1823-p-4)*The Times*, 3 May 1823, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-5-May-1823-p-4)*The Times*, 5 May 1823, p. 4  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 7 May 1823, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-7-May-1823-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 7 May 1823, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-7-May-1823-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-7-May-1823-p-3)*The Times*, 7 May 1823, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-7-May-1823-p-4)*The Times*, 7 May 1823, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 8 May 1823, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-8-May-1823-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 10 May 1823, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-10-May-1823-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 12 May 1823, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-12-May-1823-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 14 May 1823, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-14-May-1823-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 15 May 1823, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-15-May-1823-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-8-May-1823-p-4)*The Times*, 8 May 1823, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-10-May-1823-p-4)*The Times*, 10 May 1823, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-12-May-1823-p-4)*The Times*, 12 May 1823, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-14-May-1823-p-4)*The Times*, 14 May 1823, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-15-May-1823-p-4)*The Times*, 15 May 1823, p. 4  
 
 
 # Citation: 

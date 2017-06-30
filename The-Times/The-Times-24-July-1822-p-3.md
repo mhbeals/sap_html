@@ -1,8 +1,8 @@
 # *The Times*, 24 July 1822, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 27 July 1822, p. 2](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-27-July-1822-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 28 July 1822, p. 12](https://mhbeals.github.io/sap_html/Examiner/Examiner-28-July-1822-p-12)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-27-July-1822-p-2)*Leeds Mercury*, 27 July 1822, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-28-July-1822-p-12)*Examiner*, 28 July 1822, p. 12  
 
 
 # Citation: 

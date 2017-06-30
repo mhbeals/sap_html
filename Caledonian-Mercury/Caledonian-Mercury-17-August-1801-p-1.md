@@ -1,7 +1,7 @@
 # *Caledonian Mercury*, 17 August 1801, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 1 September 1801, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-1-September-1801-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-1-September-1801-p-2)*Hull Packet*, 1 September 1801, p. 2  
 
 
 # Citation: 

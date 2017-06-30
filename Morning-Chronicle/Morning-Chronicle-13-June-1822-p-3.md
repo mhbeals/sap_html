@@ -1,13 +1,13 @@
 # *Morning Chronicle*, 13 June 1822, p. 3  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 13 June 1822, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-13-June-1822-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-13-June-1822-p-4)*The Times*, 13 June 1822, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 15 June 1822, p. 2](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-15-June-1822-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 16 June 1822, p. 7](https://mhbeals.github.io/sap_html/Examiner/Examiner-16-June-1822-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 16 June 1822, p. 10](https://mhbeals.github.io/sap_html/Examiner/Examiner-16-June-1822-p-10)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 16 June 1822, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-16-June-1822-p-15)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-15-June-1822-p-2)*Ipswich Journal*, 15 June 1822, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-16-June-1822-p-7)*Examiner*, 16 June 1822, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-16-June-1822-p-10)*Examiner*, 16 June 1822, p. 10  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-16-June-1822-p-15)*Examiner*, 16 June 1822, p. 15  
 
 
 # Citation: 

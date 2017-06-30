@@ -1,9 +1,9 @@
 # *Caledonian Mercury*, 15 June 1820, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 16 June 1820, p. 2](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-16-June-1820-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 16 June 1820, p. 4](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-16-June-1820-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 21 June 1820, p. 4](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-21-June-1820-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-16-June-1820-p-2)*Glasgow Herald*, 16 June 1820, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-16-June-1820-p-4)*Glasgow Herald*, 16 June 1820, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-21-June-1820-p-4)*Aberdeen Journal*, 21 June 1820, p. 4  
 
 
 # Citation: 

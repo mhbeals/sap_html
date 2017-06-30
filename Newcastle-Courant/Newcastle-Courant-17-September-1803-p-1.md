@@ -1,13 +1,13 @@
 # *Newcastle Courant*, 17 September 1803, p. 1  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 17 September 1803, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-17-September-1803-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-17-September-1803-p-4)*Ipswich Journal*, 17 September 1803, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 8 October 1803, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-8-October-1803-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 27 September 1803, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-27-September-1803-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 4 October 1803, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-4-October-1803-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 8 October 1803, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-8-October-1803-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-8-October-1803-p-4)*Ipswich Journal*, 8 October 1803, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-27-September-1803-p-2)*Hull Packet*, 27 September 1803, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-4-October-1803-p-2)*Hull Packet*, 4 October 1803, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-8-October-1803-p-4)*Ipswich Journal*, 8 October 1803, p. 4  
 
 
 # Citation: 

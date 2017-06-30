@@ -1,11 +1,11 @@
 # *Caledonian Mercury*, 15 April 1822, p. 4  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 15 April 1822, p. 1](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-15-April-1822-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-15-April-1822-p-1)*Glasgow Herald*, 15 April 1822, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 17 April 1822, p. 4](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-17-April-1822-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 19 April 1822, p. 1](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-19-April-1822-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-17-April-1822-p-4)*Aberdeen Journal*, 17 April 1822, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-19-April-1822-p-1)*Glasgow Herald*, 19 April 1822, p. 1  
 
 
 # Citation: 

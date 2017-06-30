@@ -1,8 +1,8 @@
 # *Hampshire Portsmouth Telegraph*, 17 May 1802, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 13 May 1802, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-13-May-1802-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Jackson's Oxford Journal*, 15 May 1802, p. 2](https://mhbeals.github.io/sap_html/Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-15-May-1802-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-13-May-1802-p-3)*The Times*, 13 May 1802, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-15-May-1802-p-2)*Jackson's Oxford Journal*, 15 May 1802, p. 2  
 
 
 # Citation: 

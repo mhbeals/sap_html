@@ -1,23 +1,23 @@
 # *Morning Chronicle*, 23 August 1819, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 7 August 1819, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-7-August-1819-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 12 August 1819, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-12-August-1819-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 14 August 1819, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-14-August-1819-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 21 August 1819, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-21-August-1819-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-7-August-1819-p-4)*The Times*, 7 August 1819, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-12-August-1819-p-4)*The Times*, 12 August 1819, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-14-August-1819-p-4)*The Times*, 14 August 1819, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-21-August-1819-p-4)*The Times*, 21 August 1819, p. 4  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 23 August 1819, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-23-August-1819-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-23-August-1819-p-4)*The Times*, 23 August 1819, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 24 August 1819, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-24-August-1819-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 25 August 1819, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-25-August-1819-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 26 August 1819, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-26-August-1819-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 28 August 1819, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-28-August-1819-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 31 August 1819, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-31-August-1819-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 3 September 1819, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-3-September-1819-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 7 September 1819, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-7-September-1819-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 10 September 1819, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-10-September-1819-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-24-August-1819-p-4)*The Times*, 24 August 1819, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-25-August-1819-p-4)*The Times*, 25 August 1819, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-26-August-1819-p-4)*The Times*, 26 August 1819, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-28-August-1819-p-4)*The Times*, 28 August 1819, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-31-August-1819-p-4)*The Times*, 31 August 1819, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-3-September-1819-p-4)*The Times*, 3 September 1819, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-7-September-1819-p-4)*The Times*, 7 September 1819, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-10-September-1819-p-4)*The Times*, 10 September 1819, p. 4  
 
 
 # Citation: 

@@ -1,13 +1,13 @@
 # *Aberdeen Journal*, 13 November 1822, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 29 October 1822, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-29-October-1822-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 1 November 1822, p. 4](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-1-November-1822-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Jackson's Oxford Journal*, 2 November 1822, p. 2](https://mhbeals.github.io/sap_html/Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-2-November-1822-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 8 November 1822, p. 2](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-8-November-1822-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 9 November 1822, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-9-November-1822-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 10 November 1822, p. 6](https://mhbeals.github.io/sap_html/Examiner/Examiner-10-November-1822-p-6)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 11 November 1822, p. 4](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-11-November-1822-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-29-October-1822-p-2)*The Times*, 29 October 1822, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-1-November-1822-p-4)*Glasgow Herald*, 1 November 1822, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-2-November-1822-p-2)*Jackson's Oxford Journal*, 2 November 1822, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-8-November-1822-p-2)*Glasgow Herald*, 8 November 1822, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-9-November-1822-p-2)*The Times*, 9 November 1822, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-10-November-1822-p-6)*Examiner*, 10 November 1822, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-11-November-1822-p-4)*Bristol Mercury*, 11 November 1822, p. 4  
 
 
 # Citation: 

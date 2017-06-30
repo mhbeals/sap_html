@@ -1,9 +1,9 @@
 # *The Times*, 15 June 1815, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 18 June 1815, p. 1](https://mhbeals.github.io/sap_html/Examiner/Examiner-18-June-1815-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 18 June 1815, p. 8](https://mhbeals.github.io/sap_html/Examiner/Examiner-18-June-1815-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 18 June 1815, p. 9](https://mhbeals.github.io/sap_html/Examiner/Examiner-18-June-1815-p-9)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-18-June-1815-p-1)*Examiner*, 18 June 1815, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-18-June-1815-p-8)*Examiner*, 18 June 1815, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-18-June-1815-p-9)*Examiner*, 18 June 1815, p. 9  
 
 
 # Citation: 

@@ -1,7 +1,7 @@
 # *The Times*, 8 December 1814, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 11 December 1814, p. 10](https://mhbeals.github.io/sap_html/Examiner/Examiner-11-December-1814-p-10)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-11-December-1814-p-10)*Examiner*, 11 December 1814, p. 10  
 
 
 # Citation: 

@@ -1,7 +1,7 @@
 # *Liverpool Mercury*, 2 April 1813, p. 7  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 14 March 1813, p. 5](https://mhbeals.github.io/sap_html/Examiner/Examiner-14-March-1813-p-5)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-14-March-1813-p-5)*Examiner*, 14 March 1813, p. 5  
 
 
 # Citation: 

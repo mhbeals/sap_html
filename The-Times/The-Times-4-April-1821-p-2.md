@@ -1,10 +1,10 @@
 # *The Times*, 4 April 1821, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Jackson's Oxford Journal*, 7 April 1821, p. 2](https://mhbeals.github.io/sap_html/Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-7-April-1821-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 7 April 1821, p. 2](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-7-April-1821-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 8 April 1821, p. 5](https://mhbeals.github.io/sap_html/Examiner/Examiner-8-April-1821-p-5)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 9 April 1821, p. 1](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-9-April-1821-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-7-April-1821-p-2)*Jackson's Oxford Journal*, 7 April 1821, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-7-April-1821-p-2)*Leeds Mercury*, 7 April 1821, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-8-April-1821-p-5)*Examiner*, 8 April 1821, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-9-April-1821-p-1)*Glasgow Herald*, 9 April 1821, p. 1  
 
 
 # Citation: 

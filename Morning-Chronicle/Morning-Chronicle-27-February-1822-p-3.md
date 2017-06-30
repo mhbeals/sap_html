@@ -1,7 +1,7 @@
 # *Morning Chronicle*, 27 February 1822, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 20 March 1822, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-20-March-1822-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-20-March-1822-p-7)*The Times*, 20 March 1822, p. 7  
 
 
 # Citation: 

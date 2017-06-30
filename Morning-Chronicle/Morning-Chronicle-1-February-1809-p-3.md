@@ -1,7 +1,7 @@
 # *Morning Chronicle*, 1 February 1809, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 5 February 1809, p. 6](https://mhbeals.github.io/sap_html/Examiner/Examiner-5-February-1809-p-6)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-5-February-1809-p-6)*Examiner*, 5 February 1809, p. 6  
 
 
 # Citation: 

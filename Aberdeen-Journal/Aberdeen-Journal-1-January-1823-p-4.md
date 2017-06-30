@@ -1,8 +1,8 @@
 # *Aberdeen Journal*, 1 January 1823, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 19 December 1822, p. 3](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-19-December-1822-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 23 December 1822, p. 4](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-23-December-1822-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-19-December-1822-p-3)*Morning Chronicle*, 19 December 1822, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-23-December-1822-p-4)*Glasgow Herald*, 23 December 1822, p. 4  
 
 
 # Citation: 

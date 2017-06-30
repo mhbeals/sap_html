@@ -1,9 +1,9 @@
 # *Freeman's Journal*, 2 May 1821, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 3 May 1821, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-3-May-1821-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 5 May 1821, p. 4](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-5-May-1821-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 11 May 1821, p. 1](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-11-May-1821-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-3-May-1821-p-4)*Caledonian Mercury*, 3 May 1821, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-5-May-1821-p-4)*Leeds Mercury*, 5 May 1821, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-11-May-1821-p-1)*Glasgow Herald*, 11 May 1821, p. 1  
 
 
 # Citation: 

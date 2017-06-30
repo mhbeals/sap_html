@@ -1,13 +1,13 @@
 # *Morning Chronicle*, 5 March 1824, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 4 March 1824, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-4-March-1824-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-4-March-1824-p-3)*The Times*, 4 March 1824, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 6 March 1824, p. 3](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-6-March-1824-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 17 March 1824, p. 8](https://mhbeals.github.io/sap_html/The-Times/The-Times-17-March-1824-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 20 March 1824, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-20-March-1824-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 25 March 1824, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-25-March-1824-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-6-March-1824-p-3)*Ipswich Journal*, 6 March 1824, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-17-March-1824-p-8)*The Times*, 17 March 1824, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-20-March-1824-p-3)*The Times*, 20 March 1824, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-25-March-1824-p-3)*The Times*, 25 March 1824, p. 3  
 
 
 # Citation: 

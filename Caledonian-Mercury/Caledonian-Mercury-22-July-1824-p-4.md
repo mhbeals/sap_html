@@ -1,10 +1,10 @@
 # *Caledonian Mercury*, 22 July 1824, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 4 July 1824, p. 12](https://mhbeals.github.io/sap_html/Examiner/Examiner-4-July-1824-p-12)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 9 July 1824, p. 2](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-9-July-1824-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 10 July 1824, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-10-July-1824-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 18 July 1824, p. 7](https://mhbeals.github.io/sap_html/Examiner/Examiner-18-July-1824-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-4-July-1824-p-12)*Examiner*, 4 July 1824, p. 12  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-9-July-1824-p-2)*Liverpool Mercury*, 9 July 1824, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-10-July-1824-p-2)*Newcastle Courant*, 10 July 1824, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-18-July-1824-p-7)*Examiner*, 18 July 1824, p. 7  
 
 
 # Citation: 

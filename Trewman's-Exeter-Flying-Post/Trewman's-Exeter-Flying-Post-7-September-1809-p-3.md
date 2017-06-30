@@ -1,8 +1,8 @@
 # *Trewman's Exeter Flying Post*, 7 September 1809, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 17 August 1809, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-17-August-1809-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 31 August 1809, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-31-August-1809-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-17-August-1809-p-1)*Derby Mercury*, 17 August 1809, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-31-August-1809-p-4)*Derby Mercury*, 31 August 1809, p. 4  
 
 
 # Citation: 

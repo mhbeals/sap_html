@@ -1,8 +1,8 @@
 # *Morning Chronicle*, 27 May 1813, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 29 May 1813, p. 2](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-29-May-1813-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 29 May 1813, p. 3](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-29-May-1813-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-29-May-1813-p-2)*Ipswich Journal*, 29 May 1813, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-29-May-1813-p-3)*Leeds Mercury*, 29 May 1813, p. 3  
 
 
 # Citation: 

@@ -1,7 +1,7 @@
 # *Aberdeen Journal*, 27 November 1822, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 22 November 1822, p. 2](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-22-November-1822-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-22-November-1822-p-2)*Glasgow Herald*, 22 November 1822, p. 2  
 
 
 # Citation: 

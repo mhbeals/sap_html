@@ -1,11 +1,11 @@
 # *Caledonian Mercury*, 31 January 1814, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 23 January 1814, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-23-January-1814-p-11)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 25 January 1814, p. 6](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-25-January-1814-p-6)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-23-January-1814-p-11)*Examiner*, 23 January 1814, p. 11  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-25-January-1814-p-6)*Hull Packet*, 25 January 1814, p. 6  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 8 February 1814, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-8-February-1814-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-8-February-1814-p-4)*Hull Packet*, 8 February 1814, p. 4  
 
 
 # Citation: 

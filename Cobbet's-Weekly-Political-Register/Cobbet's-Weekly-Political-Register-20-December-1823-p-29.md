@@ -1,10 +1,10 @@
 # *Cobbet's Weekly Political Register*, 20 December 1823, p. 29  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 8 December 1823, p. 3](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-8-December-1823-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-8-December-1823-p-3)*Bristol Mercury*, 8 December 1823, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 22 December 1823, p. 3](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-22-December-1823-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-22-December-1823-p-3)*Bristol Mercury*, 22 December 1823, p. 3  
 
 
 # Citation: 

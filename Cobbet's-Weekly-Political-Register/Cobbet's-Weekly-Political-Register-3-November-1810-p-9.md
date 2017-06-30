@@ -1,8 +1,8 @@
 # *Cobbet's Weekly Political Register*, 3 November 1810, p. 9  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 5 November 1810, p. 2](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-5-November-1810-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 10 November 1810, p. 2](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-10-November-1810-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-5-November-1810-p-2)*Caledonian Mercury*, 5 November 1810, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-10-November-1810-p-2)*Leeds Mercury*, 10 November 1810, p. 2  
 
 
 # Citation: 

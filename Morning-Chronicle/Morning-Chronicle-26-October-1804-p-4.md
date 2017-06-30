@@ -1,10 +1,10 @@
 # *Morning Chronicle*, 26 October 1804, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 13 October 1804, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-13-October-1804-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-13-October-1804-p-4)*The Times*, 13 October 1804, p. 4  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 26 October 1804, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-26-October-1804-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-26-October-1804-p-4)*The Times*, 26 October 1804, p. 4  
 
 
 # Citation: 

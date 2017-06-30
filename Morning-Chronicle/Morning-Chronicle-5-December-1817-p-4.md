@@ -1,16 +1,16 @@
 # *Morning Chronicle*, 5 December 1817, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 25 November 1817, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-25-November-1817-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 27 November 1817, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-27-November-1817-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 1 December 1817, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-1-December-1817-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 4 December 1817, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-4-December-1817-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-25-November-1817-p-4)*The Times*, 25 November 1817, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-27-November-1817-p-4)*The Times*, 27 November 1817, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-1-December-1817-p-4)*The Times*, 1 December 1817, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-4-December-1817-p-4)*The Times*, 4 December 1817, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 8 December 1817, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-8-December-1817-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 11 December 1817, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-11-December-1817-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 15 December 1817, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-15-December-1817-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 18 December 1817, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-18-December-1817-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-8-December-1817-p-4)*The Times*, 8 December 1817, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-11-December-1817-p-4)*The Times*, 11 December 1817, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-15-December-1817-p-4)*The Times*, 15 December 1817, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-18-December-1817-p-4)*The Times*, 18 December 1817, p. 4  
 
 
 # Citation: 

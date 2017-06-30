@@ -1,7 +1,7 @@
 # *Cobbet's Weekly Political Register*, 19 May 1804, p. 7  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 17 May 1804, p. 2](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-17-May-1804-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-17-May-1804-p-2)*Caledonian Mercury*, 17 May 1804, p. 2  
 
 
 # Citation: 

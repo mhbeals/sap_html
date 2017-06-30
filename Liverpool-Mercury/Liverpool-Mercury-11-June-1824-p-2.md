@@ -1,9 +1,9 @@
 # *Liverpool Mercury*, 11 June 1824, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 2 June 1824, p. 1](https://mhbeals.github.io/sap_html/The-Times/The-Times-2-June-1824-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 6 June 1824, p. 5](https://mhbeals.github.io/sap_html/Examiner/Examiner-6-June-1824-p-5)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 6 June 1824, p. 6](https://mhbeals.github.io/sap_html/Examiner/Examiner-6-June-1824-p-6)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-2-June-1824-p-1)*The Times*, 2 June 1824, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-6-June-1824-p-5)*Examiner*, 6 June 1824, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-6-June-1824-p-6)*Examiner*, 6 June 1824, p. 6  
 
 
 # Citation: 

@@ -1,13 +1,13 @@
 # *Cobbet's Weekly Political Register*, 5 October 1811, p. 13  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 2 October 1811, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-2-October-1811-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-2-October-1811-p-3)*The Times*, 2 October 1811, p. 3  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 5 October 1811, p. 2](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-5-October-1811-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-5-October-1811-p-2)*Leeds Mercury*, 5 October 1811, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 8 October 1811, p. 3](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-8-October-1811-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-8-October-1811-p-3)*Hull Packet*, 8 October 1811, p. 3  
 
 
 # Citation: 

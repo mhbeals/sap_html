@@ -1,7 +1,7 @@
 # *Trewman's Exeter Flying Post*, 20 August 1807, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Jackson's Oxford Journal*, 1 August 1807, p. 4](https://mhbeals.github.io/sap_html/Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-1-August-1807-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-1-August-1807-p-4)*Jackson's Oxford Journal*, 1 August 1807, p. 4  
 
 
 # Citation: 

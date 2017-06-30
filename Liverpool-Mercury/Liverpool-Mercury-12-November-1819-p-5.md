@@ -1,14 +1,14 @@
 # *Liverpool Mercury*, 12 November 1819, p. 5  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 23 October 1819, p. 4](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-23-October-1819-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 27 October 1819, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-27-October-1819-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 3 November 1819, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-3-November-1819-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 10 November 1819, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-10-November-1819-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-23-October-1819-p-4)*Leeds Mercury*, 23 October 1819, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-27-October-1819-p-4)*The Times*, 27 October 1819, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-3-November-1819-p-4)*The Times*, 3 November 1819, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-10-November-1819-p-4)*The Times*, 10 November 1819, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 15 November 1819, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-15-November-1819-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 16 November 1819, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-16-November-1819-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-15-November-1819-p-4)*The Times*, 15 November 1819, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-16-November-1819-p-2)*Hull Packet*, 16 November 1819, p. 2  
 
 
 # Citation: 

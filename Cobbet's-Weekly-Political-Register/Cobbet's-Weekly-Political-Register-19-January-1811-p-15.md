@@ -1,7 +1,7 @@
 # *Cobbet's Weekly Political Register*, 19 January 1811, p. 15  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 20 January 1811, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-20-January-1811-p-13)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-20-January-1811-p-13)*Examiner*, 20 January 1811, p. 13  
 
 
 # Citation: 

@@ -1,7 +1,7 @@
 # *Derby Mercury*, 17 January 1821, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 13 January 1821, p. 2](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-13-January-1821-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-13-January-1821-p-2)*Ipswich Journal*, 13 January 1821, p. 2  
 
 
 # Citation: 

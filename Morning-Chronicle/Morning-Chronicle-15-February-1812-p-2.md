@@ -1,7 +1,7 @@
 # *Morning Chronicle*, 15 February 1812, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 16 February 1812, p. 8](https://mhbeals.github.io/sap_html/Examiner/Examiner-16-February-1812-p-8)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-16-February-1812-p-8)*Examiner*, 16 February 1812, p. 8  
 
 
 # Citation: 

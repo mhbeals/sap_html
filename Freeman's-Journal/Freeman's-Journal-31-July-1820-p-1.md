@@ -1,7 +1,7 @@
 # *Freeman's Journal*, 31 July 1820, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 29 July 1820, p. 1](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-29-July-1820-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-29-July-1820-p-1)*Leeds Mercury*, 29 July 1820, p. 1  
 
 
 # Citation: 

@@ -1,7 +1,7 @@
 # *Hull Packet*, 10 March 1818, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 7 March 1818, p. 3](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-7-March-1818-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-7-March-1818-p-3)*Leeds Mercury*, 7 March 1818, p. 3  
 
 
 # Citation: 

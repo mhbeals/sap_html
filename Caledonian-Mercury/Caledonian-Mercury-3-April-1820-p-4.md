@@ -1,12 +1,12 @@
 # *Caledonian Mercury*, 3 April 1820, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 30 March 1820, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-30-March-1820-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 2 April 1820, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-2-April-1820-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 2 April 1820, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-2-April-1820-p-16)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-30-March-1820-p-3)*The Times*, 30 March 1820, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-2-April-1820-p-15)*Examiner*, 2 April 1820, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-2-April-1820-p-16)*Examiner*, 2 April 1820, p. 16  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 3 April 1820, p. 1](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-3-April-1820-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-3-April-1820-p-1)*Glasgow Herald*, 3 April 1820, p. 1  
 
 
 # Citation: 

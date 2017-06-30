@@ -1,7 +1,7 @@
 # *Examiner*, 19 May 1822, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 13 May 1822, p. 5](https://mhbeals.github.io/sap_html/The-Times/The-Times-13-May-1822-p-5)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-13-May-1822-p-5)*The Times*, 13 May 1822, p. 5  
 
 
 # Citation: 

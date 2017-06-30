@@ -1,7 +1,7 @@
 # *Liverpool Mercury*, 13 March 1812, p. 6  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 8 March 1812, p. 10](https://mhbeals.github.io/sap_html/Examiner/Examiner-8-March-1812-p-10)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-8-March-1812-p-10)*Examiner*, 8 March 1812, p. 10  
 
 
 # Citation: 

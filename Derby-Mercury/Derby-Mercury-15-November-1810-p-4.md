@@ -1,9 +1,9 @@
 # *Derby Mercury*, 15 November 1810, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 10 November 1810, p. 1](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-10-November-1810-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 13 November 1810, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-13-November-1810-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 14 November 1810, p. 12](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-14-November-1810-p-12)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-10-November-1810-p-1)*Ipswich Journal*, 10 November 1810, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-13-November-1810-p-4)*Hull Packet*, 13 November 1810, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-14-November-1810-p-12)*Cobbet's Weekly Political Register*, 14 November 1810, p. 12  
 
 
 # Citation: 

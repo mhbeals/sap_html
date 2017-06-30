@@ -1,10 +1,10 @@
 # *Caledonian Mercury*, 15 November 1821, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 6 November 1821, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-6-November-1821-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 12 November 1821, p. 2](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-12-November-1821-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 12 November 1821, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-12-November-1821-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 13 November 1821, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-13-November-1821-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-6-November-1821-p-3)*The Times*, 6 November 1821, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-12-November-1821-p-2)*Glasgow Herald*, 12 November 1821, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-12-November-1821-p-2)*The Times*, 12 November 1821, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freeman's-Journal/Freeman's-Journal-13-November-1821-p-2)*Freeman's Journal*, 13 November 1821, p. 2  
 
 
 # Citation: 

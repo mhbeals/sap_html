@@ -1,8 +1,8 @@
 # *Cobbet's Weekly Political Register*, 16 July 1803, p. 10  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 18 July 1803, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-18-July-1803-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 18 July 1803, p. 3](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-18-July-1803-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-18-July-1803-p-2)*Morning Chronicle*, 18 July 1803, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-18-July-1803-p-3)*Morning Chronicle*, 18 July 1803, p. 3  
 
 
 # Citation: 

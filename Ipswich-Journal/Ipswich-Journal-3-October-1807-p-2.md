@@ -1,7 +1,7 @@
 # *Ipswich Journal*, 3 October 1807, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 26 September 1807, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-26-September-1807-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-26-September-1807-p-2)*Newcastle Courant*, 26 September 1807, p. 2  
 
 
 # Citation: 

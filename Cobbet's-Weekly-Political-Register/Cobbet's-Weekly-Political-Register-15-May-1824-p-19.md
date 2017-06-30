@@ -1,7 +1,7 @@
 # *Cobbet's Weekly Political Register*, 15 May 1824, p. 19  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 12 May 1824, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-12-May-1824-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-12-May-1824-p-2)*Morning Chronicle*, 12 May 1824, p. 2  
 
 
 # Citation: 

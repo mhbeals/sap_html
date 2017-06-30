@@ -1,10 +1,10 @@
 # *Caledonian Mercury*, 11 January 1816, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 17 January 1816, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-17-January-1816-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 20 January 1816, p. 2](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-20-January-1816-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 21 January 1816, p. 3](https://mhbeals.github.io/sap_html/Examiner/Examiner-21-January-1816-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 26 January 1816, p. 6](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-26-January-1816-p-6)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-17-January-1816-p-3)*The Times*, 17 January 1816, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-20-January-1816-p-2)*Leeds Mercury*, 20 January 1816, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-21-January-1816-p-3)*Examiner*, 21 January 1816, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-26-January-1816-p-6)*Liverpool Mercury*, 26 January 1816, p. 6  
 
 
 # Citation: 

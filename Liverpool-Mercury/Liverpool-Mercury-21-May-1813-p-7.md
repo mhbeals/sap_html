@@ -1,8 +1,8 @@
 # *Liverpool Mercury*, 21 May 1813, p. 7  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 15 May 1813, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-15-May-1813-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 15 May 1813, p. 3](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-15-May-1813-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-15-May-1813-p-4)*Ipswich Journal*, 15 May 1813, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-15-May-1813-p-3)*Leeds Mercury*, 15 May 1813, p. 3  
 
 
 # Citation: 

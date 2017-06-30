@@ -1,9 +1,9 @@
 # *Trewman's Exeter Flying Post*, 24 June 1813, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 8 June 1813, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-8-June-1813-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 15 June 1813, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-15-June-1813-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 22 June 1813, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-22-June-1813-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-8-June-1813-p-4)*Hull Packet*, 8 June 1813, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-15-June-1813-p-4)*Hull Packet*, 15 June 1813, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-22-June-1813-p-2)*Hull Packet*, 22 June 1813, p. 2  
 
 
 # Citation: 

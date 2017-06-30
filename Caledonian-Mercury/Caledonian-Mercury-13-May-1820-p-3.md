@@ -1,8 +1,8 @@
 # *Caledonian Mercury*, 13 May 1820, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 15 May 1820, p. 2](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-15-May-1820-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 27 May 1820, p. 1](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-27-May-1820-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-15-May-1820-p-2)*Glasgow Herald*, 15 May 1820, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-27-May-1820-p-1)*Newcastle Courant*, 27 May 1820, p. 1  
 
 
 # Citation: 

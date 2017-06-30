@@ -1,9 +1,9 @@
 # *Morning Chronicle*, 7 September 1812, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 10 September 1812, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-10-September-1812-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 10 September 1812, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-10-September-1812-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 24 September 1812, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-24-September-1812-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-10-September-1812-p-1)*Derby Mercury*, 10 September 1812, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-10-September-1812-p-2)*Derby Mercury*, 10 September 1812, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-24-September-1812-p-2)*Derby Mercury*, 24 September 1812, p. 2  
 
 
 # Citation: 

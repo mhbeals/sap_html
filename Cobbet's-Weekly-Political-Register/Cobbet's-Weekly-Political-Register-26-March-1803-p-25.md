@@ -1,7 +1,7 @@
 # *Cobbet's Weekly Political Register*, 26 March 1803, p. 25  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 22 March 1803, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-22-March-1803-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-22-March-1803-p-3)*The Times*, 22 March 1803, p. 3  
 
 
 # Citation: 

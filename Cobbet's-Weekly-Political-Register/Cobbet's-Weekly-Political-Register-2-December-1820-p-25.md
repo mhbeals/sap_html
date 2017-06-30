@@ -1,7 +1,7 @@
 # *Cobbet's Weekly Political Register*, 2 December 1820, p. 25  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 4 December 1820, p. 3](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-4-December-1820-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freeman's-Journal/Freeman's-Journal-4-December-1820-p-3)*Freeman's Journal*, 4 December 1820, p. 3  
 
 
 # Citation: 

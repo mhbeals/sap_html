@@ -1,7 +1,7 @@
 # *Morning Chronicle*, 20 June 1822, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 23 June 1822, p. 8](https://mhbeals.github.io/sap_html/Examiner/Examiner-23-June-1822-p-8)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-23-June-1822-p-8)*Examiner*, 23 June 1822, p. 8  
 
 
 # Citation: 

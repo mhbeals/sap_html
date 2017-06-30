@@ -1,9 +1,9 @@
 # *Caledonian Mercury*, 1 September 1814, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 3 September 1814, p. 4](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-3-September-1814-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 4 September 1814, p. 5](https://mhbeals.github.io/sap_html/Examiner/Examiner-4-September-1814-p-5)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 7 September 1814, p. 4](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-7-September-1814-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-3-September-1814-p-4)*Leeds Mercury*, 3 September 1814, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-4-September-1814-p-5)*Examiner*, 4 September 1814, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-7-September-1814-p-4)*Aberdeen Journal*, 7 September 1814, p. 4  
 
 
 # Citation: 

@@ -1,8 +1,8 @@
 # *Morning Chronicle*, 16 May 1816, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 18 May 1816, p. 3](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-18-May-1816-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 21 May 1816, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-21-May-1816-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-18-May-1816-p-3)*Leeds Mercury*, 18 May 1816, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-21-May-1816-p-2)*Hull Packet*, 21 May 1816, p. 2  
 
 
 # Citation: 

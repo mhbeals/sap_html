@@ -1,12 +1,12 @@
 # *Hull Packet*, 22 August 1815, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 11 August 1815, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-11-August-1815-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 12 August 1815, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-12-August-1815-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 14 August 1815, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-14-August-1815-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-11-August-1815-p-4)*The Times*, 11 August 1815, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-12-August-1815-p-4)*The Times*, 12 August 1815, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-14-August-1815-p-4)*The Times*, 14 August 1815, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 26 August 1815, p. 4](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-26-August-1815-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-26-August-1815-p-4)*Leeds Mercury*, 26 August 1815, p. 4  
 
 
 # Citation: 

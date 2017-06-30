@@ -1,12 +1,12 @@
 # *Examiner*, 27 December 1818, p. 15  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 21 December 1818, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-21-December-1818-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 22 December 1818, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-22-December-1818-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 26 December 1818, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-26-December-1818-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-21-December-1818-p-3)*The Times*, 21 December 1818, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-22-December-1818-p-3)*The Times*, 22 December 1818, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-26-December-1818-p-4)*Ipswich Journal*, 26 December 1818, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 29 December 1818, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-29-December-1818-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-29-December-1818-p-4)*Hull Packet*, 29 December 1818, p. 4  
 
 
 # Citation: 

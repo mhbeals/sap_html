@@ -1,7 +1,7 @@
 # *Bristol Mercury*, 4 October 1819, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 10 October 1819, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-10-October-1819-p-11)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-10-October-1819-p-11)*Examiner*, 10 October 1819, p. 11  
 
 
 # Citation: 

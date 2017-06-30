@@ -1,8 +1,8 @@
 # *The Times*, 12 May 1812, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 16 May 1812, p. 2](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-16-May-1812-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 17 May 1812, p. 5](https://mhbeals.github.io/sap_html/Examiner/Examiner-17-May-1812-p-5)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-16-May-1812-p-2)*Leeds Mercury*, 16 May 1812, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-17-May-1812-p-5)*Examiner*, 17 May 1812, p. 5  
 
 
 # Citation: 

@@ -1,7 +1,7 @@
 # *The Times*, 21 April 1815, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 23 April 1815, p. 10](https://mhbeals.github.io/sap_html/Examiner/Examiner-23-April-1815-p-10)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-23-April-1815-p-10)*Examiner*, 23 April 1815, p. 10  
 
 
 # Citation: 

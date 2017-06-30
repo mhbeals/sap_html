@@ -1,7 +1,7 @@
 # *Trewman's Exeter Flying Post*, 8 December 1814, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 3 December 1814, p. 2](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-3-December-1814-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-3-December-1814-p-2)*Leeds Mercury*, 3 December 1814, p. 2  
 
 
 # Citation: 

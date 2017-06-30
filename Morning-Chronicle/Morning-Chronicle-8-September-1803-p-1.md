@@ -1,8 +1,8 @@
 # *Morning Chronicle*, 8 September 1803, p. 1  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 8 September 1803, p. 1](https://mhbeals.github.io/sap_html/The-Times/The-Times-8-September-1803-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 8 September 1803, p. 1](https://mhbeals.github.io/sap_html/The-Times/The-Times-8-September-1803-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-8-September-1803-p-1)*The Times*, 8 September 1803, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-8-September-1803-p-1)*The Times*, 8 September 1803, p. 1  
 
 
 # Citation: 

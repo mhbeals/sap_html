@@ -1,8 +1,8 @@
 # *Examiner*, 22 November 1818, p. 11  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 17 November 1818, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-17-November-1818-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 18 November 1818, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-18-November-1818-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-17-November-1818-p-3)*The Times*, 17 November 1818, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-18-November-1818-p-3)*The Times*, 18 November 1818, p. 3  
 
 
 # Citation: 

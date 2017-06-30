@@ -1,18 +1,18 @@
 # *Liverpool Mercury*, 22 November 1822, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 2 November 1822, p. 1](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-2-November-1822-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 6 November 1822, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-6-November-1822-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 9 November 1822, p. 4](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-9-November-1822-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 15 November 1822, p. 3](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-15-November-1822-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hampshire Portsmouth Telegraph*, 18 November 1822, p. 1](https://mhbeals.github.io/sap_html/Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-18-November-1822-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-2-November-1822-p-1)*Ipswich Journal*, 2 November 1822, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-6-November-1822-p-2)*Derby Mercury*, 6 November 1822, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-9-November-1822-p-4)*Leeds Mercury*, 9 November 1822, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-15-November-1822-p-3)*Glasgow Herald*, 15 November 1822, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-18-November-1822-p-1)*Hampshire Portsmouth Telegraph*, 18 November 1822, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 23 November 1822, p. 1](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-23-November-1822-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 30 November 1822, p. 1](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-30-November-1822-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 2 December 1822, p. 3](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-2-December-1822-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 2 December 1822, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-2-December-1822-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 6 December 1822, p. 3](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-6-December-1822-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-23-November-1822-p-1)*Leeds Mercury*, 23 November 1822, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-30-November-1822-p-1)*Leeds Mercury*, 30 November 1822, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-2-December-1822-p-3)*Glasgow Herald*, 2 December 1822, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-2-December-1822-p-2)*Bristol Mercury*, 2 December 1822, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-6-December-1822-p-3)*Glasgow Herald*, 6 December 1822, p. 3  
 
 
 # Citation: 

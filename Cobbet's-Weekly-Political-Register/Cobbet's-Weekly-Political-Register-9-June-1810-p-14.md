@@ -1,7 +1,7 @@
 # *Cobbet's Weekly Political Register*, 9 June 1810, p. 14  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 10 June 1810, p. 3](https://mhbeals.github.io/sap_html/Examiner/Examiner-10-June-1810-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-10-June-1810-p-3)*Examiner*, 10 June 1810, p. 3  
 
 
 # Citation: 

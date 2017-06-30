@@ -1,7 +1,7 @@
 # *Hull Packet*, 12 March 1816, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 16 March 1816, p. 1](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-16-March-1816-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-16-March-1816-p-1)*Ipswich Journal*, 16 March 1816, p. 1  
 
 
 # Citation: 

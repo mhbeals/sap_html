@@ -1,10 +1,10 @@
 # *Trewman's Exeter Flying Post*, 23 March 1809, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 21 March 1809, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-21-March-1809-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-21-March-1809-p-4)*The Times*, 21 March 1809, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 26 March 1809, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-26-March-1809-p-14)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-26-March-1809-p-14)*Examiner*, 26 March 1809, p. 14  
 
 
 # Citation: 

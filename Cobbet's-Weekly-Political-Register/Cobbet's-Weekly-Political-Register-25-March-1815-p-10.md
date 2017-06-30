@@ -1,8 +1,8 @@
 # *Cobbet's Weekly Political Register*, 25 March 1815, p. 10  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 26 March 1815, p. 6](https://mhbeals.github.io/sap_html/Examiner/Examiner-26-March-1815-p-6)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 31 March 1815, p. 2](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-31-March-1815-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-26-March-1815-p-6)*Examiner*, 26 March 1815, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-31-March-1815-p-2)*Liverpool Mercury*, 31 March 1815, p. 2  
 
 
 # Citation: 

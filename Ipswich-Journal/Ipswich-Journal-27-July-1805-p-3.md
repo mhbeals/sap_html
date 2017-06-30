@@ -1,9 +1,9 @@
 # *Ipswich Journal*, 27 July 1805, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 30 July 1805, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-30-July-1805-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 1 August 1805, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-1-August-1805-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 6 August 1805, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-6-August-1805-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-30-July-1805-p-1)*Hull Packet*, 30 July 1805, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-1-August-1805-p-2)*Derby Mercury*, 1 August 1805, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-6-August-1805-p-1)*Hull Packet*, 6 August 1805, p. 1  
 
 
 # Citation: 

@@ -1,10 +1,10 @@
 # *Trewman's Exeter Flying Post*, 22 July 1802, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 8 July 1802, p. 3](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-8-July-1802-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-8-July-1802-p-3)*Derby Mercury*, 8 July 1802, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 12 August 1802, p. 3](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-12-August-1802-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-12-August-1802-p-3)*Derby Mercury*, 12 August 1802, p. 3  
 
 
 # Citation: 

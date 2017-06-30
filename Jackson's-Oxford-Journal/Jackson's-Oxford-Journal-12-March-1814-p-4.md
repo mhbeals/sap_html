@@ -1,11 +1,11 @@
 # *Jackson's Oxford Journal*, 12 March 1814, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 22 February 1814, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-22-February-1814-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Trewman's Exeter Flying Post*, 24 February 1814, p. 3](https://mhbeals.github.io/sap_html/Trewman's-Exeter-Flying-Post/Trewman's-Exeter-Flying-Post-24-February-1814-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 3 March 1814, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-3-March-1814-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 5 March 1814, p. 1](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-5-March-1814-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 5 March 1814, p. 3](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-5-March-1814-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-22-February-1814-p-4)*Hull Packet*, 22 February 1814, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewman's-Exeter-Flying-Post/Trewman's-Exeter-Flying-Post-24-February-1814-p-3)*Trewman's Exeter Flying Post*, 24 February 1814, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-3-March-1814-p-1)*Derby Mercury*, 3 March 1814, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-5-March-1814-p-1)*Ipswich Journal*, 5 March 1814, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-5-March-1814-p-3)*Ipswich Journal*, 5 March 1814, p. 3  
 
 
 # Citation: 

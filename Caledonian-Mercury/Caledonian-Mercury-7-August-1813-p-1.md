@@ -1,12 +1,12 @@
 # *Caledonian Mercury*, 7 August 1813, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 3 August 1813, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-3-August-1813-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-3-August-1813-p-1)*Hull Packet*, 3 August 1813, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 14 August 1813, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-14-August-1813-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 17 August 1813, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-17-August-1813-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 24 August 1813, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-24-August-1813-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-14-August-1813-p-4)*Ipswich Journal*, 14 August 1813, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-17-August-1813-p-1)*Hull Packet*, 17 August 1813, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-24-August-1813-p-1)*Hull Packet*, 24 August 1813, p. 1  
 
 
 # Citation: 

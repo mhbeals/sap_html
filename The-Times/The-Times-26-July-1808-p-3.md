@@ -1,9 +1,9 @@
 # *The Times*, 26 July 1808, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 30 July 1808, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-30-July-1808-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 31 July 1808, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-31-July-1808-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 31 July 1808, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-31-July-1808-p-14)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-30-July-1808-p-4)*Ipswich Journal*, 30 July 1808, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-31-July-1808-p-13)*Examiner*, 31 July 1808, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-31-July-1808-p-14)*Examiner*, 31 July 1808, p. 14  
 
 
 # Citation: 

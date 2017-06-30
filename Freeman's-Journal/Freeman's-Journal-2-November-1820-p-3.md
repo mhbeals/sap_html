@@ -1,9 +1,9 @@
 # *Freeman's Journal*, 2 November 1820, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 25 October 1820, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-25-October-1820-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 27 October 1820, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-27-October-1820-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 29 October 1820, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-29-October-1820-p-14)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-25-October-1820-p-4)*The Times*, 25 October 1820, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-27-October-1820-p-4)*The Times*, 27 October 1820, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-29-October-1820-p-14)*Examiner*, 29 October 1820, p. 14  
 
 
 # Citation: 

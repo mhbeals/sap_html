@@ -1,8 +1,8 @@
 # *Morning Chronicle*, 21 October 1808, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 23 October 1808, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-23-October-1808-p-14)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 23 October 1808, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-23-October-1808-p-15)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-23-October-1808-p-14)*Examiner*, 23 October 1808, p. 14  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-23-October-1808-p-15)*Examiner*, 23 October 1808, p. 15  
 
 
 # Citation: 

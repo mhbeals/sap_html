@@ -1,7 +1,7 @@
 # *Cobbet's Weekly Political Register*, 11 November 1820, p. 10  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 27 October 1820, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-27-October-1820-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-27-October-1820-p-4)*The Times*, 27 October 1820, p. 4  
 
 
 # Citation: 

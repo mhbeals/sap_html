@@ -1,8 +1,8 @@
 # *Morning Chronicle*, 12 April 1809, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 16 April 1809, p. 10](https://mhbeals.github.io/sap_html/Examiner/Examiner-16-April-1809-p-10)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 16 April 1809, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-16-April-1809-p-11)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-16-April-1809-p-10)*Examiner*, 16 April 1809, p. 10  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-16-April-1809-p-11)*Examiner*, 16 April 1809, p. 11  
 
 
 # Citation: 

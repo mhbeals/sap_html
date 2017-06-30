@@ -1,8 +1,8 @@
 # *Morning Chronicle*, 22 January 1808, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 24 January 1808, p. 8](https://mhbeals.github.io/sap_html/Examiner/Examiner-24-January-1808-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 30 January 1808, p. 4](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-30-January-1808-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-24-January-1808-p-8)*Examiner*, 24 January 1808, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-30-January-1808-p-4)*Leeds Mercury*, 30 January 1808, p. 4  
 
 
 # Citation: 

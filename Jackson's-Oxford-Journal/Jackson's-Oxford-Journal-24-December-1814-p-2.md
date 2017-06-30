@@ -1,7 +1,7 @@
 # *Jackson's Oxford Journal*, 24 December 1814, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 31 December 1814, p. 1](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-31-December-1814-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-31-December-1814-p-1)*Leeds Mercury*, 31 December 1814, p. 1  
 
 
 # Citation: 

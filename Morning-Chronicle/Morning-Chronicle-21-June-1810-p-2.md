@@ -1,7 +1,7 @@
 # *Morning Chronicle*, 21 June 1810, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 24 June 1810, p. 7](https://mhbeals.github.io/sap_html/Examiner/Examiner-24-June-1810-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-24-June-1810-p-7)*Examiner*, 24 June 1810, p. 7  
 
 
 # Citation: 

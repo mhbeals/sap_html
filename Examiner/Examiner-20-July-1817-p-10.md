@@ -1,8 +1,8 @@
 # *Examiner*, 20 July 1817, p. 10  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 12 July 1817, p. 3](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-12-July-1817-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 15 July 1817, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-15-July-1817-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-12-July-1817-p-3)*Leeds Mercury*, 12 July 1817, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-15-July-1817-p-3)*The Times*, 15 July 1817, p. 3  
 
 
 # Citation: 

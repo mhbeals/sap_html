@@ -1,10 +1,10 @@
 # *Morning Chronicle*, 29 November 1823, p. 4  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 29 November 1823, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-29-November-1823-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-29-November-1823-p-2)*The Times*, 29 November 1823, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 8 December 1823, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-8-December-1823-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-8-December-1823-p-1)*Hull Packet*, 8 December 1823, p. 1  
 
 
 # Citation: 

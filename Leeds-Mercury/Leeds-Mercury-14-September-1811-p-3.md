@@ -1,7 +1,7 @@
 # *Leeds Mercury*, 14 September 1811, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 1 October 1811, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-1-October-1811-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-1-October-1811-p-1)*Hull Packet*, 1 October 1811, p. 1  
 
 
 # Citation: 

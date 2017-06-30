@@ -1,10 +1,10 @@
 # *The Times*, 16 June 1808, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 19 June 1808, p. 6](https://mhbeals.github.io/sap_html/Examiner/Examiner-19-June-1808-p-6)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 19 June 1808, p. 7](https://mhbeals.github.io/sap_html/Examiner/Examiner-19-June-1808-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 19 June 1808, p. 8](https://mhbeals.github.io/sap_html/Examiner/Examiner-19-June-1808-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 21 June 1808, p. 3](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-21-June-1808-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-19-June-1808-p-6)*Examiner*, 19 June 1808, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-19-June-1808-p-7)*Examiner*, 19 June 1808, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-19-June-1808-p-8)*Examiner*, 19 June 1808, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-21-June-1808-p-3)*Hull Packet*, 21 June 1808, p. 3  
 
 
 # Citation: 

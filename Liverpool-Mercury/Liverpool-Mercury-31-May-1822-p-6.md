@@ -1,7 +1,7 @@
 # *Liverpool Mercury*, 31 May 1822, p. 6  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 26 May 1822, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-26-May-1822-p-13)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-26-May-1822-p-13)*Examiner*, 26 May 1822, p. 13  
 
 
 # Citation: 
