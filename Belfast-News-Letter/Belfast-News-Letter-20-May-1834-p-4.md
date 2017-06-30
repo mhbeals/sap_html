@@ -1,0 +1,35 @@
+# *Belfast News-Letter*, 20 May 1834, p. 4  
+  
+### Content from this page previously appeared in:  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 13 May 1834, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-13-May-1834-p-4)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 13 May 1834, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-13-May-1834-p-4)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 14 May 1834, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-14-May-1834-p-4)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 14 May 1834, p. 6](https://mhbeals.github.io/sap_html/The-Times/The-Times-14-May-1834-p-6)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 15 May 1834, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-15-May-1834-p-4)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 16 May 1834, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-16-May-1834-p-2)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 16 May 1834, p. 2](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-16-May-1834-p-2)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 17 May 1834, p. 2](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-17-May-1834-p-2)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 17 May 1834, p. 2](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-17-May-1834-p-2)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 18 May 1834, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-18-May-1834-p-11)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 19 May 1834, p. 2](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-19-May-1834-p-2)  
+  
+### Content from this page subsequently appeared in:  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 21 May 1834, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-21-May-1834-p-2)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 23 May 1834, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-23-May-1834-p-4)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 24 May 1834, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-24-May-1834-p-4)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 24 May 1834, p. 22](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-24-May-1834-p-22)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 24 May 1834, p. 4](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-24-May-1834-p-4)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 24 May 1834, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-24-May-1834-p-2)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 24 May 1834, p. 4](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-24-May-1834-p-4)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 25 May 1834, p. 9](https://mhbeals.github.io/sap_html/Examiner/Examiner-25-May-1834-p-9)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 27 May 1834, p. 3](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-27-May-1834-p-3)  
+![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 31 May 1834, p. 19](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-31-May-1834-p-19)  
+
+
+# Citation: 
+
+Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.0.1.* 2 June 2017. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
+
+# Nota Bona
+
+Bibliometric data is time consuming to produce but benefits us all. Please remember to cite or acknowledge this and any other bibliometric data you use in your research. All data is available CC-BY 4.0 at [https://github.com/mhbeals/sap_reprints](https://github.com/mhbeals/sap_reprints)
