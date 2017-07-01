@@ -1,7 +1,7 @@
 # *The Times*, 13 June 1821, p. 2  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freeman's-Journal/Freeman's-Journal-15-June-1821-p-2)*Freeman's Journal*, 15 June 1821, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-15-June-1821-p-2)*Freeman's Journal*, 15 June 1821, p. 2  
 
 
 # Citation: 

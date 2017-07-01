@@ -1,7 +1,7 @@
 # *Ipswich Journal*, 30 October 1824, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 7 November 1824, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-7-November-1824-p-14)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-7-November-1824-p-14)*Examiner*, 7 November 1824, p. 14  
 
 
 # Citation: 

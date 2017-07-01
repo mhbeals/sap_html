@@ -1,7 +1,7 @@
 # *Leeds Mercury*, 22 January 1825, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 16 January 1825, p. 9](https://mhbeals.github.io/sap_html/Examiner/Examiner-16-January-1825-p-9)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-16-January-1825-p-9)*Examiner*, 16 January 1825, p. 9  
 
 
 # Citation: 

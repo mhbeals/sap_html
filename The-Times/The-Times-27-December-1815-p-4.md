@@ -1,7 +1,7 @@
 # *The Times*, 27 December 1815, p. 4  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-6-January-1816-p-5)*Cobbet's Weekly Political Register*, 6 January 1816, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-6-January-1816-p-5)*Cobbet's Weekly Political Register*, 6 January 1816, p. 5  
 
 
 # Citation: 

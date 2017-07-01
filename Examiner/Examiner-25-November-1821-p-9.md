@@ -1,7 +1,7 @@
 # *Examiner*, 25 November 1821, p. 9  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-24-November-1821-p-31)*Cobbet's Weekly Political Register*, 24 November 1821, p. 31  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-24-November-1821-p-31)*Cobbet's Weekly Political Register*, 24 November 1821, p. 31  
 
 
 # Citation: 
