@@ -1,4 +1,4 @@
-# Full index of September1839  
+# Full index of September 1839  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-1-September-1839-p-1)*Champion*, 1 September 1839, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-1-September-1839-p-2)*Champion*, 1 September 1839, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-1-September-1839-p-3)*Champion*, 1 September 1839, p. 3  

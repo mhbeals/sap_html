@@ -1,4 +1,4 @@
-# Full index of January1804  
+# Full index of January 1804  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-1-January-1804-p-10)*Cobbet's Weekly Political Register*, 1 January 1804, p. 10  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-1-January-1804-p-11)*Cobbet's Weekly Political Register*, 1 January 1804, p. 11  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-2-January-1804-p-1)*Caledonian Mercury*, 2 January 1804, p. 1  

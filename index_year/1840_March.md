@@ -1,4 +1,4 @@
-# Full index of March1840  
+# Full index of March 1840  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-1-March-1840-p-1)*Champion*, 1 March 1840, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-1-March-1840-p-2)*Champion*, 1 March 1840, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-1-March-1840-p-3)*Champion*, 1 March 1840, p. 3  

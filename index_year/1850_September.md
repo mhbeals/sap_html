@@ -1,4 +1,4 @@
-# Full index of September1850  
+# Full index of September 1850  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyd's-Illustrated-Newspaper/Lloyd's-Illustrated-Newspaper-1-September-1850-p-1)*Lloyd's Illustrated Newspaper*, 1 September 1850, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyd's-Illustrated-Newspaper/Lloyd's-Illustrated-Newspaper-1-September-1850-p-2)*Lloyd's Illustrated Newspaper*, 1 September 1850, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyd's-Illustrated-Newspaper/Lloyd's-Illustrated-Newspaper-1-September-1850-p-3)*Lloyd's Illustrated Newspaper*, 1 September 1850, p. 3  
