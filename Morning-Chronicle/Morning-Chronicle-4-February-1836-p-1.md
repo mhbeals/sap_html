@@ -1,16 +1,16 @@
 # *Morning Chronicle*, 4 February 1836, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 24 January 1836, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-24-January-1836-p-14)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 31 January 1836, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-31-January-1836-p-16)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-24-January-1836-p-14)*Examiner*, 24 January 1836, p. 14  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-31-January-1836-p-16)*Examiner*, 31 January 1836, p. 16  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 5 February 1836, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-5-February-1836-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 5 February 1836, p. 8](https://mhbeals.github.io/sap_html/The-Times/The-Times-5-February-1836-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 7 February 1836, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-7-February-1836-p-14)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 7 February 1836, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-7-February-1836-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 8 February 1836, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-8-February-1836-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 14 February 1836, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-14-February-1836-p-16)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-5-February-1836-p-2)*The Times*, 5 February 1836, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-5-February-1836-p-8)*The Times*, 5 February 1836, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-7-February-1836-p-14)*Examiner*, 7 February 1836, p. 14  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-7-February-1836-p-16)*Examiner*, 7 February 1836, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-8-February-1836-p-7)*The Times*, 8 February 1836, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-14-February-1836-p-16)*Examiner*, 14 February 1836, p. 16  
 
 
 # Citation: 

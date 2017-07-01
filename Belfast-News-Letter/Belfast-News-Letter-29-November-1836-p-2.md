@@ -1,14 +1,14 @@
 # *Belfast News-Letter*, 29 November 1836, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 23 November 1836, p. 1](https://mhbeals.github.io/sap_html/The-Times/The-Times-23-November-1836-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 25 November 1836, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-25-November-1836-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 26 November 1836, p. 2](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-26-November-1836-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 27 November 1836, p. 7](https://mhbeals.github.io/sap_html/Examiner/Examiner-27-November-1836-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Champion*, 28 November 1836, p. 8](https://mhbeals.github.io/sap_html/Champion/Champion-28-November-1836-p-8)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-23-November-1836-p-1)*The Times*, 23 November 1836, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-25-November-1836-p-2)*The Times*, 25 November 1836, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-26-November-1836-p-2)*Manchester Times*, 26 November 1836, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-27-November-1836-p-7)*Examiner*, 27 November 1836, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-28-November-1836-p-8)*Champion*, 28 November 1836, p. 8  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Champion*, 4 December 1836, p. 31](https://mhbeals.github.io/sap_html/Champion/Champion-4-December-1836-p-31)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-4-December-1836-p-31)*Champion*, 4 December 1836, p. 31  
 
 
 # Citation: 

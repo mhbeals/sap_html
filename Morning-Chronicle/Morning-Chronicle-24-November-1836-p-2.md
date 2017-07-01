@@ -1,8 +1,8 @@
 # *Morning Chronicle*, 24 November 1836, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 27 November 1836, p. 6](https://mhbeals.github.io/sap_html/Examiner/Examiner-27-November-1836-p-6)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 27 November 1836, p. 7](https://mhbeals.github.io/sap_html/Examiner/Examiner-27-November-1836-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-27-November-1836-p-6)*Examiner*, 27 November 1836, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-27-November-1836-p-7)*Examiner*, 27 November 1836, p. 7  
 
 
 # Citation: 

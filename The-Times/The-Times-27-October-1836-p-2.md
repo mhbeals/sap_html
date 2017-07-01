@@ -1,8 +1,8 @@
 # *The Times*, 27 October 1836, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 29 October 1836, p. 3](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-29-October-1836-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 30 October 1836, p. 2](https://mhbeals.github.io/sap_html/Examiner/Examiner-30-October-1836-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-29-October-1836-p-3)*Ipswich Journal*, 29 October 1836, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-30-October-1836-p-2)*Examiner*, 30 October 1836, p. 2  
 
 
 # Citation: 

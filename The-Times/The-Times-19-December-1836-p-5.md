@@ -1,12 +1,12 @@
 # *The Times*, 19 December 1836, p. 5  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 23 December 1836, p. 2](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-23-December-1836-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 23 December 1836, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-23-December-1836-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Champion*, 25 December 1836, p. 8](https://mhbeals.github.io/sap_html/Champion/Champion-25-December-1836-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Champion*, 25 December 1836, p. 15](https://mhbeals.github.io/sap_html/Champion/Champion-25-December-1836-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Champion*, 25 December 1836, p. 24](https://mhbeals.github.io/sap_html/Champion/Champion-25-December-1836-p-24)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 25 December 1836, p. 8](https://mhbeals.github.io/sap_html/Examiner/Examiner-25-December-1836-p-8)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-23-December-1836-p-2)*Belfast News-Letter*, 23 December 1836, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-23-December-1836-p-4)*Hull Packet*, 23 December 1836, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-25-December-1836-p-8)*Champion*, 25 December 1836, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-25-December-1836-p-15)*Champion*, 25 December 1836, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-25-December-1836-p-24)*Champion*, 25 December 1836, p. 24  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-25-December-1836-p-8)*Examiner*, 25 December 1836, p. 8  
 
 
 # Citation: 

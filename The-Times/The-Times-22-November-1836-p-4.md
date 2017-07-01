@@ -1,9 +1,9 @@
 # *The Times*, 22 November 1836, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Champion*, 27 November 1836, p. 12](https://mhbeals.github.io/sap_html/Champion/Champion-27-November-1836-p-12)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Champion*, 27 November 1836, p. 29](https://mhbeals.github.io/sap_html/Champion/Champion-27-November-1836-p-29)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Champion*, 28 November 1836, p. 5](https://mhbeals.github.io/sap_html/Champion/Champion-28-November-1836-p-5)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-27-November-1836-p-12)*Champion*, 27 November 1836, p. 12  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-27-November-1836-p-29)*Champion*, 27 November 1836, p. 29  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-28-November-1836-p-5)*Champion*, 28 November 1836, p. 5  
 
 
 # Citation: 

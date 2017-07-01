@@ -1,7 +1,7 @@
 # *Morning Chronicle*, 1 December 1836, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Champion*, 4 December 1836, p. 28](https://mhbeals.github.io/sap_html/Champion/Champion-4-December-1836-p-28)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-4-December-1836-p-28)*Champion*, 4 December 1836, p. 28  
 
 
 # Citation: 

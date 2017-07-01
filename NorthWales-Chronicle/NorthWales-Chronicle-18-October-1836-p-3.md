@@ -1,14 +1,14 @@
 # *NorthWales Chronicle*, 18 October 1836, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Champion*, 16 October 1836, p. 4](https://mhbeals.github.io/sap_html/Champion/Champion-16-October-1836-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Champion*, 16 October 1836, p. 14](https://mhbeals.github.io/sap_html/Champion/Champion-16-October-1836-p-14)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Champion*, 16 October 1836, p. 22](https://mhbeals.github.io/sap_html/Champion/Champion-16-October-1836-p-22)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 17 October 1836, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-17-October-1836-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Champion*, 17 October 1836, p. 7](https://mhbeals.github.io/sap_html/Champion/Champion-17-October-1836-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-16-October-1836-p-4)*Champion*, 16 October 1836, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-16-October-1836-p-14)*Champion*, 16 October 1836, p. 14  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-16-October-1836-p-22)*Champion*, 16 October 1836, p. 22  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-17-October-1836-p-4)*Caledonian Mercury*, 17 October 1836, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-17-October-1836-p-7)*Champion*, 17 October 1836, p. 7  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Brighton Patriot*, 18 October 1836, p. 3](https://mhbeals.github.io/sap_html/Brighton-Patriot/Brighton-Patriot-18-October-1836-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Brighton-Patriot/Brighton-Patriot-18-October-1836-p-3)*Brighton Patriot*, 18 October 1836, p. 3  
 
 
 # Citation: 

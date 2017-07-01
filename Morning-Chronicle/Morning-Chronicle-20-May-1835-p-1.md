@@ -1,14 +1,14 @@
 # *Morning Chronicle*, 20 May 1835, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 7 May 1835, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-7-May-1835-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 10 May 1835, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-10-May-1835-p-14)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 15 May 1835, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-15-May-1835-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-7-May-1835-p-7)*The Times*, 7 May 1835, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-10-May-1835-p-14)*Examiner*, 10 May 1835, p. 14  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-15-May-1835-p-7)*The Times*, 15 May 1835, p. 7  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 21 May 1835, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-21-May-1835-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 24 May 1835, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-24-May-1835-p-14)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 24 May 1835, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-24-May-1835-p-16)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-21-May-1835-p-7)*The Times*, 21 May 1835, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-24-May-1835-p-14)*Examiner*, 24 May 1835, p. 14  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-24-May-1835-p-16)*Examiner*, 24 May 1835, p. 16  
 
 
 # Citation: 

@@ -1,7 +1,7 @@
 # *Morning Chronicle*, 6 July 1836, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Brighton Patriot*, 12 July 1836, p. 1](https://mhbeals.github.io/sap_html/Brighton-Patriot/Brighton-Patriot-12-July-1836-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Brighton-Patriot/Brighton-Patriot-12-July-1836-p-1)*Brighton Patriot*, 12 July 1836, p. 1  
 
 
 # Citation: 

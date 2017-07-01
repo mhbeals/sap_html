@@ -1,14 +1,14 @@
 # *Morning Chronicle*, 10 July 1835, p. 4  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 10 July 1835, p. 6](https://mhbeals.github.io/sap_html/The-Times/The-Times-10-July-1835-p-6)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 10 July 1835, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-10-July-1835-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-10-July-1835-p-6)*The Times*, 10 July 1835, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-10-July-1835-p-7)*The Times*, 10 July 1835, p. 7  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 12 July 1835, p. 10](https://mhbeals.github.io/sap_html/Examiner/Examiner-12-July-1835-p-10)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 12 July 1835, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-12-July-1835-p-11)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 28 July 1835, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-28-July-1835-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 30 July 1835, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-30-July-1835-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-12-July-1835-p-10)*Examiner*, 12 July 1835, p. 10  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-12-July-1835-p-11)*Examiner*, 12 July 1835, p. 11  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-28-July-1835-p-7)*The Times*, 28 July 1835, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-30-July-1835-p-7)*The Times*, 30 July 1835, p. 7  
 
 
 # Citation: 

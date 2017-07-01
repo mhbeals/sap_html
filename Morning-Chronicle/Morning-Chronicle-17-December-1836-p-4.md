@@ -1,9 +1,9 @@
 # *Morning Chronicle*, 17 December 1836, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Champion*, 18 December 1836, p. 16](https://mhbeals.github.io/sap_html/Champion/Champion-18-December-1836-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 18 December 1836, p. 9](https://mhbeals.github.io/sap_html/Examiner/Examiner-18-December-1836-p-9)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Champion*, 19 December 1836, p. 8](https://mhbeals.github.io/sap_html/Champion/Champion-19-December-1836-p-8)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-18-December-1836-p-16)*Champion*, 18 December 1836, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-18-December-1836-p-9)*Examiner*, 18 December 1836, p. 9  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-19-December-1836-p-8)*Champion*, 19 December 1836, p. 8  
 
 
 # Citation: 

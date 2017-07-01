@@ -1,7 +1,7 @@
 # *The Times*, 24 February 1835, p. 6  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 1 March 1835, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-1-March-1835-p-11)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-1-March-1835-p-11)*Examiner*, 1 March 1835, p. 11  
 
 
 # Citation: 

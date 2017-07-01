@@ -1,7 +1,7 @@
 # *Poor Man's Guardian*, 10 October 1835, p. 5  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Brighton Patriot*, 6 October 1835, p. 4](https://mhbeals.github.io/sap_html/Brighton-Patriot/Brighton-Patriot-6-October-1835-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Brighton-Patriot/Brighton-Patriot-6-October-1835-p-4)*Brighton Patriot*, 6 October 1835, p. 4  
 
 
 # Citation: 

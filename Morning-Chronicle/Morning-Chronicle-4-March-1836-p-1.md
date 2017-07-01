@@ -1,8 +1,8 @@
 # *Morning Chronicle*, 4 March 1836, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 6 March 1836, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-6-March-1836-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 7 March 1836, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-7-March-1836-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-6-March-1836-p-16)*Examiner*, 6 March 1836, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-7-March-1836-p-7)*The Times*, 7 March 1836, p. 7  
 
 
 # Citation: 

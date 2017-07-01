@@ -1,10 +1,10 @@
 # *Morning Chronicle*, 8 August 1835, p. 1  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 8 August 1835, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-8-August-1835-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-8-August-1835-p-2)*The Times*, 8 August 1835, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 15 August 1835, p. 2](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-15-August-1835-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-15-August-1835-p-2)*Preston Chronicle*, 15 August 1835, p. 2  
 
 
 # Citation: 

@@ -1,10 +1,10 @@
 # *Derby Mercury*, 8 July 1835, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 10 July 1835, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-10-July-1835-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 12 July 1835, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-12-July-1835-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 14 July 1835, p. 6](https://mhbeals.github.io/sap_html/The-Times/The-Times-14-July-1835-p-6)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 18 July 1835, p. 1](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-18-July-1835-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-10-July-1835-p-2)*Hull Packet*, 10 July 1835, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-12-July-1835-p-13)*Examiner*, 12 July 1835, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-14-July-1835-p-6)*The Times*, 14 July 1835, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-18-July-1835-p-1)*Manchester Times*, 18 July 1835, p. 1  
 
 
 # Citation: 

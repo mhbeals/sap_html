@@ -1,13 +1,13 @@
 # *Morning Chronicle*, 10 March 1836, p. 5  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 9 March 1836, p. 5](https://mhbeals.github.io/sap_html/The-Times/The-Times-9-March-1836-p-5)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-9-March-1836-p-5)*The Times*, 9 March 1836, p. 5  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 10 March 1836, p. 1](https://mhbeals.github.io/sap_html/The-Times/The-Times-10-March-1836-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-10-March-1836-p-1)*The Times*, 10 March 1836, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 15 March 1836, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-15-March-1836-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-15-March-1836-p-2)*The Times*, 15 March 1836, p. 2  
 
 
 # Citation: 

@@ -1,12 +1,12 @@
 # *Examiner*, 1 November 1835, p. 14  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Brighton Patriot*, 13 October 1835, p. 1](https://mhbeals.github.io/sap_html/Brighton-Patriot/Brighton-Patriot-13-October-1835-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Brighton Patriot*, 27 October 1835, p. 1](https://mhbeals.github.io/sap_html/Brighton-Patriot/Brighton-Patriot-27-October-1835-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Brighton-Patriot/Brighton-Patriot-13-October-1835-p-1)*Brighton Patriot*, 13 October 1835, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Brighton-Patriot/Brighton-Patriot-27-October-1835-p-1)*Brighton Patriot*, 27 October 1835, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Brighton Patriot*, 10 November 1835, p. 1](https://mhbeals.github.io/sap_html/Brighton-Patriot/Brighton-Patriot-10-November-1835-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 14 November 1835, p. 4](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-14-November-1835-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Brighton-Patriot/Brighton-Patriot-10-November-1835-p-1)*Brighton Patriot*, 10 November 1835, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-14-November-1835-p-4)*Manchester Times*, 14 November 1835, p. 4  
 
 
 # Citation: 

@@ -1,10 +1,10 @@
 # *The Times*, 11 January 1836, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 10 January 1836, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-10-January-1836-p-14)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-10-January-1836-p-14)*Examiner*, 10 January 1836, p. 14  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 17 January 1836, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-17-January-1836-p-13)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-17-January-1836-p-13)*Examiner*, 17 January 1836, p. 13  
 
 
 # Citation: 

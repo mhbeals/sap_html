@@ -1,7 +1,7 @@
 # *The Times*, 15 December 1835, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 11 December 1835, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-11-December-1835-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-11-December-1835-p-2)*Hull Packet*, 11 December 1835, p. 2  
 
 
 # Citation: 

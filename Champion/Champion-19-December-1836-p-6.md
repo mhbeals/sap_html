@@ -1,8 +1,8 @@
 # *Champion*, 19 December 1836, p. 6  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 12 December 1836, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-12-December-1836-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 14 December 1836, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-14-December-1836-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-12-December-1836-p-4)*The Times*, 12 December 1836, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-14-December-1836-p-4)*The Times*, 14 December 1836, p. 4  
 
 
 # Citation: 

@@ -1,10 +1,10 @@
 # *Morning Chronicle*, 12 November 1835, p. 4  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 12 November 1835, p. 6](https://mhbeals.github.io/sap_html/The-Times/The-Times-12-November-1835-p-6)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-12-November-1835-p-6)*The Times*, 12 November 1835, p. 6  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 18 November 1835, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-18-November-1835-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-18-November-1835-p-2)*Derby Mercury*, 18 November 1835, p. 2  
 
 
 # Citation: 

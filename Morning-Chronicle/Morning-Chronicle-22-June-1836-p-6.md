@@ -1,8 +1,8 @@
 # *Morning Chronicle*, 22 June 1836, p. 6  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 22 June 1836, p. 5](https://mhbeals.github.io/sap_html/The-Times/The-Times-22-June-1836-p-5)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 22 June 1836, p. 6](https://mhbeals.github.io/sap_html/The-Times/The-Times-22-June-1836-p-6)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-22-June-1836-p-5)*The Times*, 22 June 1836, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-22-June-1836-p-6)*The Times*, 22 June 1836, p. 6  
 
 
 # Citation: 

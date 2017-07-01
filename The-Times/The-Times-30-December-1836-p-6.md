@@ -1,9 +1,9 @@
 # *The Times*, 30 December 1836, p. 6  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Champion*, 1 January 1837, p. 28](https://mhbeals.github.io/sap_html/Champion/Champion-1-January-1837-p-28)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 1 January 1837, p. 12](https://mhbeals.github.io/sap_html/Examiner/Examiner-1-January-1837-p-12)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Champion*, 8 January 1837, p. 25](https://mhbeals.github.io/sap_html/Champion/Champion-8-January-1837-p-25)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-1-January-1837-p-28)*Champion*, 1 January 1837, p. 28  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-1-January-1837-p-12)*Examiner*, 1 January 1837, p. 12  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-8-January-1837-p-25)*Champion*, 8 January 1837, p. 25  
 
 
 # Citation: 
