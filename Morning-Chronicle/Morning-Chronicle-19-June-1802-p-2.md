@@ -1,7 +1,7 @@
 # *Morning Chronicle*, 19 June 1802, p. 2  
   
 ### Content from this page simeltaneously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-19-June-1802-p-10)*Cobbet's Weekly Political Register*, 19 June 1802, p. 10  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-19-June-1802-p-10)*Cobbet's Weekly Political Register*, 19 June 1802, p. 10  
 
 
 # Citation: 

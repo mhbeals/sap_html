@@ -1,7 +1,7 @@
 # *Examiner*, 1 July 1810, p. 6  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-30-June-1810-p-1)*Cobbet's Weekly Political Register*, 30 June 1810, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-30-June-1810-p-1)*Cobbet's Weekly Political Register*, 30 June 1810, p. 1  
 
 
 # Citation: 

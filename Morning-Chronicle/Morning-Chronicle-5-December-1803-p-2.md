@@ -1,7 +1,7 @@
 # *Morning Chronicle*, 5 December 1803, p. 2  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-10-December-1803-p-4)*Jackson's Oxford Journal*, 10 December 1803, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-10-December-1803-p-4)*Jackson's Oxford Journal*, 10 December 1803, p. 4  
 
 
 # Citation: 

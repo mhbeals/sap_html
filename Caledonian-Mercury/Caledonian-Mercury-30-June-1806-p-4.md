@@ -1,7 +1,7 @@
 # *Caledonian Mercury*, 30 June 1806, p. 4  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jackson's-Oxford-Journal/Jackson's-Oxford-Journal-21-June-1806-p-3)*Jackson's Oxford Journal*, 21 June 1806, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-21-June-1806-p-3)*Jackson's Oxford Journal*, 21 June 1806, p. 3  
 
 
 # Citation: 
