@@ -1,7 +1,7 @@
 # *The Era*, 21 December 1851, p. 10  
   
 ### Content from this page simeltaneously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyd's-Illustrated-Newspaper/Lloyd's-Illustrated-Newspaper-21-December-1851-p-3)*Lloyd's Illustrated Newspaper*, 21 December 1851, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyds-Illustrated-Newspaper/Lloyds-Illustrated-Newspaper-21-December-1851-p-3)*Lloyd's Illustrated Newspaper*, 21 December 1851, p. 3  
 
 
 # Citation: 

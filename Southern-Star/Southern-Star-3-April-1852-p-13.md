@@ -1,7 +1,7 @@
 # *Southern Star*, 3 April 1852, p. 13  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynold's-Newspaper/Reynold's-Newspaper-4-April-1852-p-16)*Reynold's Newspaper*, 4 April 1852, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-4-April-1852-p-16)*Reynold's Newspaper*, 4 April 1852, p. 16  
 
 
 # Citation: 

@@ -1,7 +1,7 @@
 # *Morning Chronicle*, 1 May 1851, p. 5  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynold's-Newspaper/Reynold's-Newspaper-4-May-1851-p-9)*Reynold's Newspaper*, 4 May 1851, p. 9  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-4-May-1851-p-9)*Reynold's Newspaper*, 4 May 1851, p. 9  
 
 
 # Citation: 
