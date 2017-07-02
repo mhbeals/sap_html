@@ -8,7 +8,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-22-November-1835-p-12)*Examiner*, 22 November 1835, p. 12  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-27-November-1835-p-2)*Belfast News-Letter*, 27 November 1835, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-28-November-1835-p-1)*Ipswich Journal*, 28 November 1835, p. 1  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Poor-Man's-Guardian/Poor-Man's-Guardian-5-December-1835-p-7)*Poor Man's Guardian*, 5 December 1835, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Poor-Mans-Guardian/Poor-Mans-Guardian-5-December-1835-p-7)*Poor Man's Guardian*, 5 December 1835, p. 7  
 
 
 # Citation: 

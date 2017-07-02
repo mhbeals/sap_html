@@ -19,7 +19,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-30-January-1835-p-2)*Liverpool Mercury*, 30 January 1835, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-30-January-1835-p-8)*Liverpool Mercury*, 30 January 1835, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-30-January-1835-p-3)*Morning Chronicle*, 30 January 1835, p. 3  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Poor-Man's-Guardian/Poor-Man's-Guardian-30-January-1835-p-6)*Poor Man's Guardian*, 30 January 1835, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Poor-Mans-Guardian/Poor-Mans-Guardian-30-January-1835-p-6)*Poor Man's Guardian*, 30 January 1835, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-30-January-1835-p-3)*The Times*, 30 January 1835, p. 3  
   
 ### Content from this page simeltaneously appeared in:  

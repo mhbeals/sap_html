@@ -1,10 +1,10 @@
 # *Morning Chronicle*, 23 March 1832, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 25 March 1832, p. 7](https://mhbeals.github.io/sap_html/Examiner/Examiner-25-March-1832-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 26 March 1832, p. 2](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-26-March-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 26 March 1832, p. 3](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-26-March-1832-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 30 March 1832, p. 2](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-30-March-1832-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-25-March-1832-p-7)*Examiner*, 25 March 1832, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-26-March-1832-p-2)*Caledonian Mercury*, 26 March 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-26-March-1832-p-3)*Freeman's Journal*, 26 March 1832, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-30-March-1832-p-2)*Liverpool Mercury*, 30 March 1832, p. 2  
 
 
 # Citation: 

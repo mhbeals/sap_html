@@ -1,18 +1,18 @@
 # *Leeds Mercury*, 1 September 1832, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 21 August 1832, p. 1](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-21-August-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 28 August 1832, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-28-August-1832-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-21-August-1832-p-1)*NorthWales Chronicle*, 21 August 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-28-August-1832-p-1)*Hull Packet*, 28 August 1832, p. 1  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 1 September 1832, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-1-September-1832-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-1-September-1832-p-2)*Bristol Mercury*, 1 September 1832, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 8 September 1832, p. 1](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-8-September-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 11 September 1832, p. 1](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-11-September-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 18 September 1832, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-18-September-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 19 September 1832, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-19-September-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 22 September 1832, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-22-September-1832-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-8-September-1832-p-1)*Preston Chronicle*, 8 September 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-11-September-1832-p-1)*NorthWales Chronicle*, 11 September 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-18-September-1832-p-1)*Hull Packet*, 18 September 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-19-September-1832-p-1)*Derby Mercury*, 19 September 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-22-September-1832-p-2)*Bristol Mercury*, 22 September 1832, p. 2  
 
 
 # Citation: 

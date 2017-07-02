@@ -1,15 +1,15 @@
 # *The Times*, 16 September 1830, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 18 September 1830, p. 3](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-18-September-1830-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 19 September 1830, p. 9](https://mhbeals.github.io/sap_html/Examiner/Examiner-19-September-1830-p-9)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 19 September 1830, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-19-September-1830-p-11)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 20 September 1830, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-20-September-1830-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 21 September 1830, p. 1](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-21-September-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 21 September 1830, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-21-September-1830-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 22 September 1830, p. 4](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-22-September-1830-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 29 September 1830, p. 2](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-29-September-1830-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 2 October 1830, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-2-October-1830-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-18-September-1830-p-3)*Leeds Mercury*, 18 September 1830, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-19-September-1830-p-9)*Examiner*, 19 September 1830, p. 9  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-19-September-1830-p-11)*Examiner*, 19 September 1830, p. 11  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-20-September-1830-p-4)*Caledonian Mercury*, 20 September 1830, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-21-September-1830-p-1)*Bristol Mercury*, 21 September 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-21-September-1830-p-2)*Hull Packet*, 21 September 1830, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-22-September-1830-p-4)*Aberdeen Journal*, 22 September 1830, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-29-September-1830-p-2)*Aberdeen Journal*, 29 September 1830, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-2-October-1830-p-4)*Ipswich Journal*, 2 October 1830, p. 4  
 
 
 # Citation: 

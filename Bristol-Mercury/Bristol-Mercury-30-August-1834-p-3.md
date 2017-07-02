@@ -1,27 +1,27 @@
 # *Bristol Mercury*, 30 August 1834, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 15 August 1834, p. 4](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-15-August-1834-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 19 August 1834, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-19-August-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 22 August 1834, p. 3](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-22-August-1834-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 23 August 1834, p. 2](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-23-August-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 23 August 1834, p. 3](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-23-August-1834-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 27 August 1834, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-27-August-1834-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-15-August-1834-p-4)*Belfast News-Letter*, 15 August 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-19-August-1834-p-2)*Morning Chronicle*, 19 August 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-22-August-1834-p-3)*Liverpool Mercury*, 22 August 1834, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-23-August-1834-p-2)*Manchester Times*, 23 August 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-23-August-1834-p-3)*Preston Chronicle*, 23 August 1834, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-27-August-1834-p-2)*Derby Mercury*, 27 August 1834, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hampshire Portsmouth Telegraph*, 1 September 1834, p. 3](https://mhbeals.github.io/sap_html/Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-1-September-1834-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 2 September 1834, p. 6](https://mhbeals.github.io/sap_html/The-Times/The-Times-2-September-1834-p-6)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Trewman's Exeter Flying Post*, 4 September 1834, p. 2](https://mhbeals.github.io/sap_html/Trewman's-Exeter-Flying-Post/Trewman's-Exeter-Flying-Post-4-September-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 6 September 1834, p. 3](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-6-September-1834-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 6 September 1834, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-6-September-1834-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 6 September 1834, p. 2](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-6-September-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 7 September 1834, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-7-September-1834-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 7 September 1834, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-7-September-1834-p-14)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 12 September 1834, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-12-September-1834-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 13 September 1834, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-13-September-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 16 September 1834, p. 3](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-16-September-1834-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 19 September 1834, p. 1](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-19-September-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 20 September 1834, p. 3](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-20-September-1834-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-1-September-1834-p-3)*Hampshire Portsmouth Telegraph*, 1 September 1834, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-2-September-1834-p-6)*The Times*, 2 September 1834, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewmans-Exeter-Flying-Post/Trewmans-Exeter-Flying-Post-4-September-1834-p-2)*Trewman's Exeter Flying Post*, 4 September 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-6-September-1834-p-3)*Preston Chronicle*, 6 September 1834, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-6-September-1834-p-4)*Ipswich Journal*, 6 September 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-6-September-1834-p-2)*Manchester Times*, 6 September 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-7-September-1834-p-13)*Examiner*, 7 September 1834, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-7-September-1834-p-14)*Examiner*, 7 September 1834, p. 14  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-12-September-1834-p-7)*Liverpool Mercury*, 12 September 1834, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-13-September-1834-p-2)*Morning Chronicle*, 13 September 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-16-September-1834-p-3)*Morning Chronicle*, 16 September 1834, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-19-September-1834-p-1)*Belfast News-Letter*, 19 September 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-20-September-1834-p-3)*Preston Chronicle*, 20 September 1834, p. 3  
 
 
 # Citation: 

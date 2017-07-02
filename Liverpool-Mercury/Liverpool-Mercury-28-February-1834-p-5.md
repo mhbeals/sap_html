@@ -1,16 +1,16 @@
 # *Liverpool Mercury*, 28 February 1834, p. 5  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 7 February 1834, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-7-February-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 15 February 1834, p. 1](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-15-February-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 15 February 1834, p. 2](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-15-February-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 22 February 1834, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-22-February-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 22 February 1834, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-22-February-1834-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-7-February-1834-p-1)*Hull Packet*, 7 February 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-15-February-1834-p-1)*Manchester Times*, 15 February 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-15-February-1834-p-2)*Manchester Times*, 15 February 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-22-February-1834-p-2)*Bristol Mercury*, 22 February 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-22-February-1834-p-2)*Newcastle Courant*, 22 February 1834, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 8 March 1834, p. 1](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-8-March-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 15 March 1834, p. 1](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-15-March-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 18 March 1834, p. 2](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-18-March-1834-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-8-March-1834-p-1)*Newcastle Courant*, 8 March 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-15-March-1834-p-1)*Manchester Times*, 15 March 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-18-March-1834-p-2)*NorthWales Chronicle*, 18 March 1834, p. 2  
 
 
 # Citation: 

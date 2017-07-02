@@ -1,16 +1,16 @@
 # *Examiner*, 8 November 1829, p. 16  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 21 October 1829, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-21-October-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 23 October 1829, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-23-October-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 30 October 1829, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-30-October-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 4 November 1829, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-4-November-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 6 November 1829, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-6-November-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 6 November 1829, p. 1](https://mhbeals.github.io/sap_html/The-Times/The-Times-6-November-1829-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-21-October-1829-p-1)*Derby Mercury*, 21 October 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-23-October-1829-p-7)*Liverpool Mercury*, 23 October 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-30-October-1829-p-7)*Liverpool Mercury*, 30 October 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-4-November-1829-p-4)*Derby Mercury*, 4 November 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-6-November-1829-p-7)*Liverpool Mercury*, 6 November 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-6-November-1829-p-1)*The Times*, 6 November 1829, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 17 November 1829, p. 3](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-17-November-1829-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 27 November 1829, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-27-November-1829-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-17-November-1829-p-3)*Bristol Mercury*, 17 November 1829, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-27-November-1829-p-7)*Liverpool Mercury*, 27 November 1829, p. 7  
 
 
 # Citation: 

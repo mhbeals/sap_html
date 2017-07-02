@@ -1,13 +1,13 @@
 # *Examiner*, 27 July 1834, p. 10  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 24 July 1834, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-24-July-1834-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-24-July-1834-p-1)*Morning Chronicle*, 24 July 1834, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 1 August 1834, p. 3](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-1-August-1834-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 2 August 1834, p. 4](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-2-August-1834-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 2 August 1834, p. 4](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-2-August-1834-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 13 August 1834, p. 4](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-13-August-1834-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-1-August-1834-p-3)*Liverpool Mercury*, 1 August 1834, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-2-August-1834-p-4)*Bristol Mercury*, 2 August 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-2-August-1834-p-4)*Manchester Times*, 2 August 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-13-August-1834-p-4)*Aberdeen Journal*, 13 August 1834, p. 4  
 
 
 # Citation: 

@@ -1,22 +1,22 @@
 # *Morning Chronicle*, 4 July 1828, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 3 July 1828, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-3-July-1828-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-3-July-1828-p-2)*The Times*, 3 July 1828, p. 2  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 4 July 1828, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-4-July-1828-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 4 July 1828, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-4-July-1828-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 4 July 1828, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-4-July-1828-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-4-July-1828-p-2)*The Times*, 4 July 1828, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-4-July-1828-p-3)*The Times*, 4 July 1828, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-4-July-1828-p-4)*The Times*, 4 July 1828, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 5 July 1828, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-5-July-1828-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 6 July 1828, p. 8](https://mhbeals.github.io/sap_html/Examiner/Examiner-6-July-1828-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 6 July 1828, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-6-July-1828-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 7 July 1828, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-7-July-1828-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 12 July 1828, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-12-July-1828-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 14 July 1828, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-14-July-1828-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 17 July 1828, p. 5](https://mhbeals.github.io/sap_html/The-Times/The-Times-17-July-1828-p-5)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 24 July 1828, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-24-July-1828-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-5-July-1828-p-7)*The Times*, 5 July 1828, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-6-July-1828-p-8)*Examiner*, 6 July 1828, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-6-July-1828-p-13)*Examiner*, 6 July 1828, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-7-July-1828-p-4)*The Times*, 7 July 1828, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-12-July-1828-p-2)*Newcastle Courant*, 12 July 1828, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-14-July-1828-p-2)*The Times*, 14 July 1828, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-17-July-1828-p-5)*The Times*, 17 July 1828, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-24-July-1828-p-2)*The Times*, 24 July 1828, p. 2  
 
 
 # Citation: 

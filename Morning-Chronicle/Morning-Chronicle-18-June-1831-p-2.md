@@ -1,16 +1,16 @@
 # *Morning Chronicle*, 18 June 1831, p. 2  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 18 June 1831, p. 17](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-18-June-1831-p-17)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 18 June 1831, p. 20](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-18-June-1831-p-20)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 18 June 1831, p. 21](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-18-June-1831-p-21)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 18 June 1831, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-18-June-1831-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-18-June-1831-p-17)*Cobbet's Weekly Political Register*, 18 June 1831, p. 17  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-18-June-1831-p-20)*Cobbet's Weekly Political Register*, 18 June 1831, p. 20  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-18-June-1831-p-21)*Cobbet's Weekly Political Register*, 18 June 1831, p. 21  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-18-June-1831-p-4)*The Times*, 18 June 1831, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 20 June 1831, p. 3](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-20-June-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 21 June 1831, p. 3](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-21-June-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 25 June 1831, p. 1](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-25-June-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 28 June 1831, p. 4](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-28-June-1831-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-20-June-1831-p-3)*Freeman's Journal*, 20 June 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-21-June-1831-p-3)*Freeman's Journal*, 21 June 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-25-June-1831-p-1)*Cobbet's Weekly Political Register*, 25 June 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-28-June-1831-p-4)*NorthWales Chronicle*, 28 June 1831, p. 4  
 
 
 # Citation: 

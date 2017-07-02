@@ -1,21 +1,21 @@
 # *The Times*, 2 September 1834, p. 7  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 19 August 1834, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-19-August-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 21 August 1834, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-21-August-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 25 August 1834, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-25-August-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 26 August 1834, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-26-August-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 27 August 1834, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-27-August-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 30 August 1834, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-30-August-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 31 August 1834, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-31-August-1834-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 31 August 1834, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-31-August-1834-p-16)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-19-August-1834-p-1)*Morning Chronicle*, 19 August 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-21-August-1834-p-1)*Morning Chronicle*, 21 August 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-25-August-1834-p-1)*Morning Chronicle*, 25 August 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-26-August-1834-p-1)*Morning Chronicle*, 26 August 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-27-August-1834-p-1)*Morning Chronicle*, 27 August 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-30-August-1834-p-1)*Morning Chronicle*, 30 August 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-31-August-1834-p-15)*Examiner*, 31 August 1834, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-31-August-1834-p-16)*Examiner*, 31 August 1834, p. 16  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 3 September 1834, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-3-September-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 5 September 1834, p. 1](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-5-September-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 11 September 1834, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-11-September-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 16 September 1834, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-16-September-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 21 September 1834, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-21-September-1834-p-15)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-3-September-1834-p-1)*Morning Chronicle*, 3 September 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-5-September-1834-p-1)*Liverpool Mercury*, 5 September 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-11-September-1834-p-1)*Morning Chronicle*, 11 September 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-16-September-1834-p-1)*Morning Chronicle*, 16 September 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-21-September-1834-p-15)*Examiner*, 21 September 1834, p. 15  
 
 
 # Citation: 

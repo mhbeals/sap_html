@@ -1,10 +1,10 @@
 # *Morning Chronicle*, 24 August 1832, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 26 August 1832, p. 9](https://mhbeals.github.io/sap_html/Examiner/Examiner-26-August-1832-p-9)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 30 August 1832, p. 2](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-30-August-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 1 September 1832, p. 2](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-1-September-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 5 September 1832, p. 3](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-5-September-1832-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-26-August-1832-p-9)*Examiner*, 26 August 1832, p. 9  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-30-August-1832-p-2)*Caledonian Mercury*, 30 August 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-1-September-1832-p-2)*Preston Chronicle*, 1 September 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-5-September-1832-p-3)*Aberdeen Journal*, 5 September 1832, p. 3  
 
 
 # Citation: 

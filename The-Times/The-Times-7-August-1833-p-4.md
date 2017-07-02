@@ -1,19 +1,19 @@
 # *The Times*, 7 August 1833, p. 4  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 7 August 1833, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-7-August-1833-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-7-August-1833-p-4)*Morning Chronicle*, 7 August 1833, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 8 August 1833, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-8-August-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 8 August 1833, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-8-August-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 9 August 1833, p. 6](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-9-August-1833-p-6)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 9 August 1833, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-9-August-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 10 August 1833, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-10-August-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 10 August 1833, p. 3](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-10-August-1833-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 10 August 1833, p. 2](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-10-August-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Poor Man's Guardian*, 10 August 1833, p. 6](https://mhbeals.github.io/sap_html/Poor-Man's-Guardian/Poor-Man's-Guardian-10-August-1833-p-6)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 11 August 1833, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-11-August-1833-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 13 August 1833, p. 3](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-13-August-1833-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-8-August-1833-p-4)*Freeman's Journal*, 8 August 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-8-August-1833-p-4)*Morning Chronicle*, 8 August 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-9-August-1833-p-6)*Liverpool Mercury*, 9 August 1833, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-9-August-1833-p-4)*Hull Packet*, 9 August 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-10-August-1833-p-4)*Caledonian Mercury*, 10 August 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-10-August-1833-p-3)*Preston Chronicle*, 10 August 1833, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-10-August-1833-p-2)*Ipswich Journal*, 10 August 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Poor-Mans-Guardian/Poor-Mans-Guardian-10-August-1833-p-6)*Poor Man's Guardian*, 10 August 1833, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-11-August-1833-p-13)*Examiner*, 11 August 1833, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-13-August-1833-p-3)*NorthWales Chronicle*, 13 August 1833, p. 3  
 
 
 # Citation: 

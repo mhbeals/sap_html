@@ -1,26 +1,26 @@
 # *Liverpool Mercury*, 28 October 1831, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 7 October 1831, p. 4](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-7-October-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 8 October 1831, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-8-October-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 8 October 1831, p. 1](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-8-October-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 12 October 1831, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-12-October-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 14 October 1831, p. 4](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-14-October-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 19 October 1831, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-19-October-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 19 October 1831, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-19-October-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 26 October 1831, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-26-October-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 26 October 1831, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-26-October-1831-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-7-October-1831-p-4)*Belfast News-Letter*, 7 October 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-8-October-1831-p-3)*Newcastle Courant*, 8 October 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-8-October-1831-p-1)*Preston Chronicle*, 8 October 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-12-October-1831-p-2)*Derby Mercury*, 12 October 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-14-October-1831-p-4)*Belfast News-Letter*, 14 October 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-19-October-1831-p-1)*Derby Mercury*, 19 October 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-19-October-1831-p-2)*Derby Mercury*, 19 October 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-26-October-1831-p-1)*Derby Mercury*, 26 October 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-26-October-1831-p-2)*Derby Mercury*, 26 October 1831, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 29 October 1831, p. 1](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-29-October-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 2 November 1831, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-2-November-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 5 November 1831, p. 1](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-5-November-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 9 November 1831, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-9-November-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 9 November 1831, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-9-November-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 11 November 1831, p. 4](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-11-November-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 12 November 1831, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-12-November-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 12 November 1831, p. 1](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-12-November-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 12 November 1831, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-12-November-1831-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-29-October-1831-p-1)*Leeds Mercury*, 29 October 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-2-November-1831-p-1)*Derby Mercury*, 2 November 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-5-November-1831-p-1)*Newcastle Courant*, 5 November 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-9-November-1831-p-1)*Derby Mercury*, 9 November 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-9-November-1831-p-2)*Derby Mercury*, 9 November 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-11-November-1831-p-4)*Belfast News-Letter*, 11 November 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-12-November-1831-p-1)*Freeman's Journal*, 12 November 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-12-November-1831-p-1)*Preston Chronicle*, 12 November 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-12-November-1831-p-3)*Newcastle Courant*, 12 November 1831, p. 3  
 
 
 # Citation: 

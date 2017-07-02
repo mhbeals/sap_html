@@ -1,19 +1,19 @@
 # *Manchester Times*, 7 January 1832, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 21 December 1831, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-21-December-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 4 January 1832, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-4-January-1832-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-21-December-1831-p-2)*Derby Mercury*, 21 December 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-4-January-1832-p-2)*Derby Mercury*, 4 January 1832, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 12 January 1832, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-12-January-1832-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 14 January 1832, p. 3](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-14-January-1832-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 15 January 1832, p. 10](https://mhbeals.github.io/sap_html/Examiner/Examiner-15-January-1832-p-10)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 20 January 1832, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-20-January-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 21 January 1832, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-21-January-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 26 January 1832, p. 3](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-26-January-1832-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 27 January 1832, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-27-January-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 27 January 1832, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-27-January-1832-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 28 January 1832, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-28-January-1832-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-12-January-1832-p-4)*Caledonian Mercury*, 12 January 1832, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-14-January-1832-p-3)*Freeman's Journal*, 14 January 1832, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-15-January-1832-p-10)*Examiner*, 15 January 1832, p. 10  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-20-January-1832-p-2)*Freeman's Journal*, 20 January 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-21-January-1832-p-2)*Freeman's Journal*, 21 January 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-26-January-1832-p-3)*Freeman's Journal*, 26 January 1832, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-27-January-1832-p-2)*Freeman's Journal*, 27 January 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-27-January-1832-p-4)*Morning Chronicle*, 27 January 1832, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-28-January-1832-p-2)*Freeman's Journal*, 28 January 1832, p. 2  
 
 
 # Citation: 

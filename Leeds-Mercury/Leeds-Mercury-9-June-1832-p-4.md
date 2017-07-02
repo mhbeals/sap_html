@@ -1,20 +1,20 @@
 # *Leeds Mercury*, 9 June 1832, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 25 May 1832, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-25-May-1832-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 26 May 1832, p. 3](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-26-May-1832-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 30 May 1832, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-30-May-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 2 June 1832, p. 3](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-2-June-1832-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 5 June 1832, p. 1](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-5-June-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 5 June 1832, p. 1](https://mhbeals.github.io/sap_html/The-Times/The-Times-5-June-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 8 June 1832, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-8-June-1832-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-25-May-1832-p-7)*Liverpool Mercury*, 25 May 1832, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-26-May-1832-p-3)*Preston Chronicle*, 26 May 1832, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-30-May-1832-p-2)*Derby Mercury*, 30 May 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-2-June-1832-p-3)*Preston Chronicle*, 2 June 1832, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-5-June-1832-p-1)*Belfast News-Letter*, 5 June 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-5-June-1832-p-1)*The Times*, 5 June 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-8-June-1832-p-7)*Liverpool Mercury*, 8 June 1832, p. 7  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 9 June 1832, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-9-June-1832-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-9-June-1832-p-2)*Newcastle Courant*, 9 June 1832, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 15 June 1832, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-15-June-1832-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 22 June 1832, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-22-June-1832-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-15-June-1832-p-7)*Liverpool Mercury*, 15 June 1832, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-22-June-1832-p-7)*Liverpool Mercury*, 22 June 1832, p. 7  
 
 
 # Citation: 

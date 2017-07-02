@@ -1,42 +1,42 @@
 # *Preston Chronicle*, 23 July 1831, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 2 July 1831, p. 7](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-2-July-1831-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 5 July 1831, p. 3](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-5-July-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 5 July 1831, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-5-July-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 8 July 1831, p. 4](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-8-July-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 8 July 1831, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-8-July-1831-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 9 July 1831, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-9-July-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 9 July 1831, p. 7](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-9-July-1831-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 12 July 1831, p. 4](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-12-July-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 12 July 1831, p. 3](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-12-July-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 15 July 1831, p. 4](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-15-July-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 15 July 1831, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-15-July-1831-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 19 July 1831, p. 4](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-19-July-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 19 July 1831, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-19-July-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 19 July 1831, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-19-July-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 19 July 1831, p. 3](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-19-July-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 22 July 1831, p. 4](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-22-July-1831-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-2-July-1831-p-7)*Manchester Times*, 2 July 1831, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-5-July-1831-p-3)*Bristol Mercury*, 5 July 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-5-July-1831-p-1)*Freeman's Journal*, 5 July 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-8-July-1831-p-4)*Belfast News-Letter*, 8 July 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-8-July-1831-p-7)*Liverpool Mercury*, 8 July 1831, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-9-July-1831-p-1)*Freeman's Journal*, 9 July 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-9-July-1831-p-7)*Manchester Times*, 9 July 1831, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-12-July-1831-p-4)*Bristol Mercury*, 12 July 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-12-July-1831-p-3)*NorthWales Chronicle*, 12 July 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-15-July-1831-p-4)*Belfast News-Letter*, 15 July 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-15-July-1831-p-7)*Liverpool Mercury*, 15 July 1831, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-19-July-1831-p-4)*Bristol Mercury*, 19 July 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-19-July-1831-p-4)*Freeman's Journal*, 19 July 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-19-July-1831-p-4)*Hull Packet*, 19 July 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-19-July-1831-p-3)*NorthWales Chronicle*, 19 July 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-22-July-1831-p-4)*Belfast News-Letter*, 22 July 1831, p. 4  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 23 July 1831, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-23-July-1831-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-23-July-1831-p-4)*Freeman's Journal*, 23 July 1831, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 26 July 1831, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-26-July-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 26 July 1831, p. 3](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-26-July-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 26 July 1831, p. 3](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-26-July-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 27 July 1831, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-27-July-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 29 July 1831, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-29-July-1831-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 29 July 1831, p. 1](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-29-July-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 30 July 1831, p. 7](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-30-July-1831-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 2 August 1831, p. 3](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-2-August-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 5 August 1831, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-5-August-1831-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 5 August 1831, p. 4](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-5-August-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 6 August 1831, p. 7](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-6-August-1831-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 9 August 1831, p. 4](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-9-August-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 9 August 1831, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-9-August-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 12 August 1831, p. 6](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-12-August-1831-p-6)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 12 August 1831, p. 4](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-12-August-1831-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-26-July-1831-p-4)*Freeman's Journal*, 26 July 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-26-July-1831-p-3)*NorthWales Chronicle*, 26 July 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-26-July-1831-p-3)*Hull Packet*, 26 July 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-27-July-1831-p-1)*Derby Mercury*, 27 July 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-29-July-1831-p-7)*Liverpool Mercury*, 29 July 1831, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-29-July-1831-p-1)*Belfast News-Letter*, 29 July 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-30-July-1831-p-7)*Manchester Times*, 30 July 1831, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-2-August-1831-p-3)*NorthWales Chronicle*, 2 August 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-5-August-1831-p-7)*Liverpool Mercury*, 5 August 1831, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-5-August-1831-p-4)*Belfast News-Letter*, 5 August 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-6-August-1831-p-7)*Manchester Times*, 6 August 1831, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-9-August-1831-p-4)*Bristol Mercury*, 9 August 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-9-August-1831-p-4)*Hull Packet*, 9 August 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-12-August-1831-p-6)*Liverpool Mercury*, 12 August 1831, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-12-August-1831-p-4)*Belfast News-Letter*, 12 August 1831, p. 4  
 
 
 # Citation: 

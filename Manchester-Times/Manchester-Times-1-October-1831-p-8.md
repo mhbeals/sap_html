@@ -1,11 +1,11 @@
 # *Manchester Times*, 1 October 1831, p. 8  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 11 September 1831, p. 9](https://mhbeals.github.io/sap_html/Examiner/Examiner-11-September-1831-p-9)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 13 September 1831, p. 1](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-13-September-1831-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-11-September-1831-p-9)*Examiner*, 11 September 1831, p. 9  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-13-September-1831-p-1)*Bristol Mercury*, 13 September 1831, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 18 October 1831, p. 4](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-18-October-1831-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-18-October-1831-p-4)*Bristol Mercury*, 18 October 1831, p. 4  
 
 
 # Citation: 

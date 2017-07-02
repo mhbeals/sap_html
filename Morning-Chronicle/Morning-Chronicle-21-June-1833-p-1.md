@@ -1,18 +1,18 @@
 # *Morning Chronicle*, 21 June 1833, p. 1  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 21 June 1833, p. 1](https://mhbeals.github.io/sap_html/The-Times/The-Times-21-June-1833-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-21-June-1833-p-1)*The Times*, 21 June 1833, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 22 June 1833, p. 32](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-22-June-1833-p-32)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 22 June 1833, p. 2](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-22-June-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 23 June 1833, p. 8](https://mhbeals.github.io/sap_html/Examiner/Examiner-23-June-1833-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 24 June 1833, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-24-June-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hampshire Portsmouth Telegraph*, 24 June 1833, p. 3](https://mhbeals.github.io/sap_html/Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-24-June-1833-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 24 June 1833, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-24-June-1833-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 25 June 1833, p. 1](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-25-June-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 26 June 1833, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-26-June-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 28 June 1833, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-28-June-1833-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-22-June-1833-p-32)*Cobbet's Weekly Political Register*, 22 June 1833, p. 32  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-22-June-1833-p-2)*Ipswich Journal*, 22 June 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-23-June-1833-p-8)*Examiner*, 23 June 1833, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-24-June-1833-p-4)*Freeman's Journal*, 24 June 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-24-June-1833-p-3)*Hampshire Portsmouth Telegraph*, 24 June 1833, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-24-June-1833-p-7)*The Times*, 24 June 1833, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-25-June-1833-p-1)*Belfast News-Letter*, 25 June 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-26-June-1833-p-4)*Derby Mercury*, 26 June 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-28-June-1833-p-4)*Hull Packet*, 28 June 1833, p. 4  
 
 
 # Citation: 

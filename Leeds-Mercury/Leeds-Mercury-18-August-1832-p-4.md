@@ -1,13 +1,13 @@
 # *Leeds Mercury*, 18 August 1832, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 14 August 1832, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-14-August-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 14 August 1832, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-14-August-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 17 August 1832, p. 2](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-17-August-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 17 August 1832, p. 2](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-17-August-1832-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-14-August-1832-p-2)*Freeman's Journal*, 14 August 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-14-August-1832-p-1)*Hull Packet*, 14 August 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-17-August-1832-p-2)*Belfast News-Letter*, 17 August 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-17-August-1832-p-2)*Liverpool Mercury*, 17 August 1832, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 24 August 1832, p. 2](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-24-August-1832-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-24-August-1832-p-2)*Liverpool Mercury*, 24 August 1832, p. 2  
 
 
 # Citation: 

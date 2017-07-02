@@ -1,37 +1,37 @@
 # *The Times*, 18 June 1831, p. 6  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 31 May 1831, p. 2](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-31-May-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 31 May 1831, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-31-May-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 3 June 1831, p. 3](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-3-June-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 4 June 1831, p. 3](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-4-June-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 10 June 1831, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-10-June-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 11 June 1831, p. 3](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-11-June-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 14 June 1831, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-14-June-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 15 June 1831, p. 3](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-15-June-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 15 June 1831, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-15-June-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 15 June 1831, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-15-June-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 16 June 1831, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-16-June-1831-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-31-May-1831-p-2)*Belfast News-Letter*, 31 May 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-31-May-1831-p-4)*Morning Chronicle*, 31 May 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-3-June-1831-p-3)*Morning Chronicle*, 3 June 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-4-June-1831-p-3)*Preston Chronicle*, 4 June 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-10-June-1831-p-4)*Morning Chronicle*, 10 June 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-11-June-1831-p-3)*Preston Chronicle*, 11 June 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-14-June-1831-p-4)*Morning Chronicle*, 14 June 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-15-June-1831-p-3)*Derby Mercury*, 15 June 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-15-June-1831-p-2)*Freeman's Journal*, 15 June 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-15-June-1831-p-4)*Freeman's Journal*, 15 June 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-16-June-1831-p-4)*Morning Chronicle*, 16 June 1831, p. 4  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 18 June 1831, p. 2](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-18-June-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 18 June 1831, p. 3](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-18-June-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 18 June 1831, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-18-June-1831-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-18-June-1831-p-2)*Caledonian Mercury*, 18 June 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-18-June-1831-p-3)*Morning Chronicle*, 18 June 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-18-June-1831-p-4)*Morning Chronicle*, 18 June 1831, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 19 June 1831, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-19-June-1831-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 20 June 1831, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-20-June-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 21 June 1831, p. 4](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-21-June-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 21 June 1831, p. 1](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-21-June-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 21 June 1831, p. 3](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-21-June-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 22 June 1831, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-22-June-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 23 June 1831, p. 2](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-23-June-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 24 June 1831, p. 1](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-24-June-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 24 June 1831, p. 2](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-24-June-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 24 June 1831, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-24-June-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 25 June 1831, p. 4](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-25-June-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 25 June 1831, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-25-June-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 28 June 1831, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-28-June-1831-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-19-June-1831-p-13)*Examiner*, 19 June 1831, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-20-June-1831-p-4)*Caledonian Mercury*, 20 June 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-21-June-1831-p-4)*Belfast News-Letter*, 21 June 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-21-June-1831-p-1)*Bristol Mercury*, 21 June 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-21-June-1831-p-3)*Morning Chronicle*, 21 June 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-22-June-1831-p-4)*Derby Mercury*, 22 June 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-23-June-1831-p-2)*Caledonian Mercury*, 23 June 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-24-June-1831-p-1)*Belfast News-Letter*, 24 June 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-24-June-1831-p-2)*Belfast News-Letter*, 24 June 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-24-June-1831-p-4)*Morning Chronicle*, 24 June 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-25-June-1831-p-4)*Preston Chronicle*, 25 June 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-25-June-1831-p-2)*Newcastle Courant*, 25 June 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-28-June-1831-p-1)*Morning Chronicle*, 28 June 1831, p. 1  
 
 
 # Citation: 

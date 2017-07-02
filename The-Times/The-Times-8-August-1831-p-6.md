@@ -1,11 +1,11 @@
 # *The Times*, 8 August 1831, p. 6  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 9 August 1831, p. 3](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-9-August-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 10 August 1831, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-10-August-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 10 August 1831, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-10-August-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 13 August 1831, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-13-August-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 13 August 1831, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-13-August-1831-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-9-August-1831-p-3)*Hull Packet*, 9 August 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-10-August-1831-p-4)*Freeman's Journal*, 10 August 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-10-August-1831-p-2)*Derby Mercury*, 10 August 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-13-August-1831-p-2)*Newcastle Courant*, 13 August 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-13-August-1831-p-3)*Newcastle Courant*, 13 August 1831, p. 3  
 
 
 # Citation: 

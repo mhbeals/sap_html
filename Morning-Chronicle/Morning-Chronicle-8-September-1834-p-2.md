@@ -1,20 +1,20 @@
 # *Morning Chronicle*, 8 September 1834, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 25 August 1834, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-25-August-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 6 September 1834, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-6-September-1834-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-25-August-1834-p-2)*The Times*, 25 August 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-6-September-1834-p-2)*The Times*, 6 September 1834, p. 2  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 8 September 1834, p. 3](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-8-September-1834-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hampshire Portsmouth Telegraph*, 8 September 1834, p. 4](https://mhbeals.github.io/sap_html/Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-8-September-1834-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 8 September 1834, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-8-September-1834-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-8-September-1834-p-3)*Caledonian Mercury*, 8 September 1834, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-8-September-1834-p-4)*Hampshire Portsmouth Telegraph*, 8 September 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-8-September-1834-p-4)*The Times*, 8 September 1834, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 11 September 1834, p. 2](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-11-September-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 12 September 1834, p. 2](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-12-September-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 13 September 1834, p. 4](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-13-September-1834-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 13 September 1834, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-13-September-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 22 September 1834, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-22-September-1834-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-11-September-1834-p-2)*Caledonian Mercury*, 11 September 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-12-September-1834-p-2)*Liverpool Mercury*, 12 September 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-13-September-1834-p-4)*Preston Chronicle*, 13 September 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-13-September-1834-p-2)*Newcastle Courant*, 13 September 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-22-September-1834-p-4)*Caledonian Mercury*, 22 September 1834, p. 4  
 
 
 # Citation: 

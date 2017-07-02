@@ -1,21 +1,21 @@
 # *Derby Mercury*, 20 May 1829, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 2 May 1829, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-2-May-1829-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 9 May 1829, p. 4](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-9-May-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 12 May 1829, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-12-May-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 16 May 1829, p. 1](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-16-May-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 16 May 1829, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-16-May-1829-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 16 May 1829, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-16-May-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 19 May 1829, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-19-May-1829-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-2-May-1829-p-3)*Newcastle Courant*, 2 May 1829, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-9-May-1829-p-4)*Newcastle Courant*, 9 May 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-12-May-1829-p-1)*Hull Packet*, 12 May 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-16-May-1829-p-1)*Leeds Mercury*, 16 May 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-16-May-1829-p-3)*Newcastle Courant*, 16 May 1829, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-16-May-1829-p-7)*The Times*, 16 May 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-19-May-1829-p-2)*Hull Packet*, 19 May 1829, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 23 May 1829, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-23-May-1829-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 26 May 1829, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-26-May-1829-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 2 June 1829, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-2-June-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 6 June 1829, p. 4](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-6-June-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 6 June 1829, p. 1](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-6-June-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 6 June 1829, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-6-June-1829-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-23-May-1829-p-3)*Newcastle Courant*, 23 May 1829, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-26-May-1829-p-2)*Hull Packet*, 26 May 1829, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-2-June-1829-p-1)*Hull Packet*, 2 June 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-6-June-1829-p-4)*Leeds Mercury*, 6 June 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-6-June-1829-p-1)*Newcastle Courant*, 6 June 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-6-June-1829-p-3)*Newcastle Courant*, 6 June 1829, p. 3  
 
 
 # Citation: 

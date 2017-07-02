@@ -1,10 +1,10 @@
 # *Morning Chronicle*, 28 March 1831, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 29 March 1831, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-29-March-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 29 March 1831, p. 2](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-29-March-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 2 April 1831, p. 2](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-2-April-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 2 April 1831, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-2-April-1831-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-29-March-1831-p-2)*Freeman's Journal*, 29 March 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-29-March-1831-p-2)*NorthWales Chronicle*, 29 March 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-2-April-1831-p-2)*Preston Chronicle*, 2 April 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-2-April-1831-p-2)*Newcastle Courant*, 2 April 1831, p. 2  
 
 
 # Citation: 

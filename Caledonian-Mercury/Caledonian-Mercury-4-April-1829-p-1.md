@@ -1,7 +1,7 @@
 # *Caledonian Mercury*, 4 April 1829, p. 1  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 4 April 1829, p. 1](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-4-April-1829-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-4-April-1829-p-1)*Manchester Times*, 4 April 1829, p. 1  
 
 
 # Citation: 

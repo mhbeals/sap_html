@@ -1,14 +1,14 @@
 # *Morning Chronicle*, 31 August 1829, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 29 August 1829, p. 3](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-29-August-1829-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-29-August-1829-p-3)*Leeds Mercury*, 29 August 1829, p. 3  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hampshire Portsmouth Telegraph*, 31 August 1829, p. 4](https://mhbeals.github.io/sap_html/Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-31-August-1829-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-31-August-1829-p-4)*Hampshire Portsmouth Telegraph*, 31 August 1829, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 5 September 1829, p. 2](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-5-September-1829-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 5 September 1829, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-5-September-1829-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-5-September-1829-p-2)*Manchester Times*, 5 September 1829, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-5-September-1829-p-4)*The Times*, 5 September 1829, p. 4  
 
 
 # Citation: 

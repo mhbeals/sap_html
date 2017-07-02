@@ -1,15 +1,15 @@
 # *Hull Packet*, 4 January 1833, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 16 December 1832, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-16-December-1832-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 23 December 1832, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-23-December-1832-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 26 December 1832, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-26-December-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 29 December 1832, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-29-December-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 29 December 1832, p. 1](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-29-December-1832-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-16-December-1832-p-15)*Examiner*, 16 December 1832, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-23-December-1832-p-16)*Examiner*, 23 December 1832, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-26-December-1832-p-1)*Derby Mercury*, 26 December 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-29-December-1832-p-2)*Bristol Mercury*, 29 December 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-29-December-1832-p-1)*Preston Chronicle*, 29 December 1832, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 19 January 1833, p. 1](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-19-January-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 21 January 1833, p. 1](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-21-January-1833-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-19-January-1833-p-1)*Caledonian Mercury*, 19 January 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-21-January-1833-p-1)*Caledonian Mercury*, 21 January 1833, p. 1  
 
 
 # Citation: 

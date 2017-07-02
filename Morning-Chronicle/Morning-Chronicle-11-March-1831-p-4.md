@@ -1,35 +1,35 @@
 # *Morning Chronicle*, 11 March 1831, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 19 February 1831, p. 8](https://mhbeals.github.io/sap_html/The-Times/The-Times-19-February-1831-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hampshire Portsmouth Telegraph*, 21 February 1831, p. 1](https://mhbeals.github.io/sap_html/Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-21-February-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 22 February 1831, p. 3](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-22-February-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 24 February 1831, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-24-February-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 27 February 1831, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-27-February-1831-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 28 February 1831, p. 8](https://mhbeals.github.io/sap_html/The-Times/The-Times-28-February-1831-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 1 March 1831, p. 3](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-1-March-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 2 March 1831, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-2-March-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 6 March 1831, p. 2](https://mhbeals.github.io/sap_html/Examiner/Examiner-6-March-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hampshire Portsmouth Telegraph*, 7 March 1831, p. 1](https://mhbeals.github.io/sap_html/Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-7-March-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 7 March 1831, p. 8](https://mhbeals.github.io/sap_html/The-Times/The-Times-7-March-1831-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 8 March 1831, p. 3](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-8-March-1831-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-19-February-1831-p-8)*The Times*, 19 February 1831, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-21-February-1831-p-1)*Hampshire Portsmouth Telegraph*, 21 February 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-22-February-1831-p-3)*Belfast News-Letter*, 22 February 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-24-February-1831-p-4)*The Times*, 24 February 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-27-February-1831-p-15)*Examiner*, 27 February 1831, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-28-February-1831-p-8)*The Times*, 28 February 1831, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-1-March-1831-p-3)*Belfast News-Letter*, 1 March 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-2-March-1831-p-4)*The Times*, 2 March 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-6-March-1831-p-2)*Examiner*, 6 March 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-7-March-1831-p-1)*Hampshire Portsmouth Telegraph*, 7 March 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-7-March-1831-p-8)*The Times*, 7 March 1831, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-8-March-1831-p-3)*Belfast News-Letter*, 8 March 1831, p. 3  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 11 March 1831, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-11-March-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 11 March 1831, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-11-March-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 11 March 1831, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-11-March-1831-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-11-March-1831-p-2)*The Times*, 11 March 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-11-March-1831-p-3)*The Times*, 11 March 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-11-March-1831-p-4)*The Times*, 11 March 1831, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 13 March 1831, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-13-March-1831-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 13 March 1831, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-13-March-1831-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 14 March 1831, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-14-March-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 14 March 1831, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-14-March-1831-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 15 March 1831, p. 3](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-15-March-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 19 March 1831, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-19-March-1831-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 19 March 1831, p. 8](https://mhbeals.github.io/sap_html/The-Times/The-Times-19-March-1831-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 20 March 1831, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-20-March-1831-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 22 March 1831, p. 3](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-22-March-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 27 March 1831, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-27-March-1831-p-15)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-13-March-1831-p-15)*Examiner*, 13 March 1831, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-13-March-1831-p-16)*Examiner*, 13 March 1831, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-14-March-1831-p-2)*Freeman's Journal*, 14 March 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-14-March-1831-p-7)*The Times*, 14 March 1831, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-15-March-1831-p-3)*Belfast News-Letter*, 15 March 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-19-March-1831-p-7)*The Times*, 19 March 1831, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-19-March-1831-p-8)*The Times*, 19 March 1831, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-20-March-1831-p-15)*Examiner*, 20 March 1831, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-22-March-1831-p-3)*Belfast News-Letter*, 22 March 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-27-March-1831-p-15)*Examiner*, 27 March 1831, p. 15  
 
 
 # Citation: 

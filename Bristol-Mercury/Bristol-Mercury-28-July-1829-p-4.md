@@ -1,28 +1,28 @@
 # *Bristol Mercury*, 28 July 1829, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 15 July 1829, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-15-July-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 17 July 1829, p. 4](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-17-July-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 21 July 1829, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-21-July-1829-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 22 July 1829, p. 4](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-22-July-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 22 July 1829, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-22-July-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 24 July 1829, p. 4](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-24-July-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 24 July 1829, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-24-July-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 25 July 1829, p. 7](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-25-July-1829-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-15-July-1829-p-4)*Derby Mercury*, 15 July 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-17-July-1829-p-4)*Belfast News-Letter*, 17 July 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-21-July-1829-p-2)*Morning Chronicle*, 21 July 1829, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-22-July-1829-p-4)*Aberdeen Journal*, 22 July 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-22-July-1829-p-4)*Derby Mercury*, 22 July 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-24-July-1829-p-4)*Belfast News-Letter*, 24 July 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-24-July-1829-p-7)*Liverpool Mercury*, 24 July 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-25-July-1829-p-7)*Manchester Times*, 25 July 1829, p. 7  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 28 July 1829, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-28-July-1829-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-28-July-1829-p-4)*Hull Packet*, 28 July 1829, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 29 July 1829, p. 2](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-29-July-1829-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 29 July 1829, p. 4](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-29-July-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 31 July 1829, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-31-July-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 5 August 1829, p. 4](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-5-August-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 5 August 1829, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-5-August-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 7 August 1829, p. 4](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-7-August-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 12 August 1829, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-12-August-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 14 August 1829, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-14-August-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 14 August 1829, p. 4](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-14-August-1829-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-29-July-1829-p-2)*Aberdeen Journal*, 29 July 1829, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-29-July-1829-p-4)*Aberdeen Journal*, 29 July 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-31-July-1829-p-7)*Liverpool Mercury*, 31 July 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-5-August-1829-p-4)*Aberdeen Journal*, 5 August 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-5-August-1829-p-4)*Derby Mercury*, 5 August 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-7-August-1829-p-4)*Belfast News-Letter*, 7 August 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-12-August-1829-p-4)*Derby Mercury*, 12 August 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-14-August-1829-p-7)*Liverpool Mercury*, 14 August 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-14-August-1829-p-4)*Belfast News-Letter*, 14 August 1829, p. 4  
 
 
 # Citation: 

@@ -1,16 +1,16 @@
 # *Morning Chronicle*, 27 June 1833, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 22 June 1833, p. 1](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-22-June-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 23 June 1833, p. 10](https://mhbeals.github.io/sap_html/Examiner/Examiner-23-June-1833-p-10)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hampshire Portsmouth Telegraph*, 24 June 1833, p. 2](https://mhbeals.github.io/sap_html/Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-24-June-1833-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-22-June-1833-p-1)*Bristol Mercury*, 22 June 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-23-June-1833-p-10)*Examiner*, 23 June 1833, p. 10  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-24-June-1833-p-2)*Hampshire Portsmouth Telegraph*, 24 June 1833, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 30 June 1833, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-30-June-1833-p-11)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 30 June 1833, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-30-June-1833-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 3 July 1833, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-3-July-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 6 July 1833, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-6-July-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 9 July 1833, p. 4](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-9-July-1833-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-30-June-1833-p-11)*Examiner*, 30 June 1833, p. 11  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-30-June-1833-p-13)*Examiner*, 30 June 1833, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-3-July-1833-p-4)*Derby Mercury*, 3 July 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-6-July-1833-p-2)*Newcastle Courant*, 6 July 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-9-July-1833-p-4)*Belfast News-Letter*, 9 July 1833, p. 4  
 
 
 # Citation: 

@@ -1,12 +1,12 @@
 # *The Times*, 20 May 1834, p. 2  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 20 May 1834, p. 3](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-20-May-1834-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-20-May-1834-p-3)*Morning Chronicle*, 20 May 1834, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 22 May 1834, p. 2](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-22-May-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Poor Man's Guardian*, 24 May 1834, p. 7](https://mhbeals.github.io/sap_html/Poor-Man's-Guardian/Poor-Man's-Guardian-24-May-1834-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Trewman's Exeter Flying Post*, 29 May 1834, p. 2](https://mhbeals.github.io/sap_html/Trewman's-Exeter-Flying-Post/Trewman's-Exeter-Flying-Post-29-May-1834-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-22-May-1834-p-2)*Caledonian Mercury*, 22 May 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Poor-Mans-Guardian/Poor-Mans-Guardian-24-May-1834-p-7)*Poor Man's Guardian*, 24 May 1834, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewmans-Exeter-Flying-Post/Trewmans-Exeter-Flying-Post-29-May-1834-p-2)*Trewman's Exeter Flying Post*, 29 May 1834, p. 2  
 
 
 # Citation: 

@@ -1,12 +1,12 @@
 # *The Times*, 16 February 1833, p. 5  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 19 February 1833, p. 2](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-19-February-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 21 February 1833, p. 2](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-21-February-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 22 February 1833, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-22-February-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 22 February 1833, p. 1](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-22-February-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 23 February 1833, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-23-February-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Poor Man's Guardian*, 2 March 1833, p. 2](https://mhbeals.github.io/sap_html/Poor-Man's-Guardian/Poor-Man's-Guardian-2-March-1833-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-19-February-1833-p-2)*Belfast News-Letter*, 19 February 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-21-February-1833-p-2)*Caledonian Mercury*, 21 February 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-22-February-1833-p-2)*Hull Packet*, 22 February 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-22-February-1833-p-1)*Belfast News-Letter*, 22 February 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-23-February-1833-p-4)*Ipswich Journal*, 23 February 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Poor-Mans-Guardian/Poor-Mans-Guardian-2-March-1833-p-2)*Poor Man's Guardian*, 2 March 1833, p. 2  
 
 
 # Citation: 

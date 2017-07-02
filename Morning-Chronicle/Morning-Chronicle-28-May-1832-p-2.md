@@ -1,10 +1,10 @@
 # *Morning Chronicle*, 28 May 1832, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 1 June 1832, p. 6](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-1-June-1832-p-6)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 2 June 1832, p. 1](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-2-June-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 5 June 1832, p. 4](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-5-June-1832-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 5 June 1832, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-5-June-1832-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-1-June-1832-p-6)*Liverpool Mercury*, 1 June 1832, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-2-June-1832-p-1)*Preston Chronicle*, 2 June 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-5-June-1832-p-4)*NorthWales Chronicle*, 5 June 1832, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-5-June-1832-p-2)*Hull Packet*, 5 June 1832, p. 2  
 
 
 # Citation: 

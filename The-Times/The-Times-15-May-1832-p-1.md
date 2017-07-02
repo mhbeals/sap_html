@@ -1,10 +1,10 @@
 # *The Times*, 15 May 1832, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 17 May 1832, p. 3](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-17-May-1832-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 18 May 1832, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-18-May-1832-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 20 May 1832, p. 7](https://mhbeals.github.io/sap_html/Examiner/Examiner-20-May-1832-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 22 May 1832, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-22-May-1832-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-17-May-1832-p-3)*Freeman's Journal*, 17 May 1832, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-18-May-1832-p-4)*Freeman's Journal*, 18 May 1832, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-20-May-1832-p-7)*Examiner*, 20 May 1832, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-22-May-1832-p-4)*Hull Packet*, 22 May 1832, p. 4  
 
 
 # Citation: 

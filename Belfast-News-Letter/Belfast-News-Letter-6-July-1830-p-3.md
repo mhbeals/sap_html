@@ -1,23 +1,23 @@
 # *Belfast News-Letter*, 6 July 1830, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 22 June 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-22-June-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 26 June 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-26-June-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 30 June 1830, p. 1](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-30-June-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 3 July 1830, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-3-July-1830-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-22-June-1830-p-1)*Freeman's Journal*, 22 June 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-26-June-1830-p-1)*Freeman's Journal*, 26 June 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-30-June-1830-p-1)*Aberdeen Journal*, 30 June 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-3-July-1830-p-2)*Freeman's Journal*, 3 July 1830, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 10 July 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-10-July-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 12 July 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-12-July-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 14 July 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-14-July-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 14 July 1830, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-14-July-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 16 July 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-16-July-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 19 July 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-19-July-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 20 July 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-20-July-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 21 July 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-21-July-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 21 July 1830, p. 1](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-21-July-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 25 July 1830, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-25-July-1830-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 26 July 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-26-July-1830-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-10-July-1830-p-1)*Freeman's Journal*, 10 July 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-12-July-1830-p-1)*Freeman's Journal*, 12 July 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-14-July-1830-p-1)*Freeman's Journal*, 14 July 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-14-July-1830-p-1)*Derby Mercury*, 14 July 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-16-July-1830-p-1)*Freeman's Journal*, 16 July 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-19-July-1830-p-1)*Freeman's Journal*, 19 July 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-20-July-1830-p-1)*Freeman's Journal*, 20 July 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-21-July-1830-p-1)*Freeman's Journal*, 21 July 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-21-July-1830-p-1)*Aberdeen Journal*, 21 July 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-25-July-1830-p-13)*Examiner*, 25 July 1830, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-26-July-1830-p-1)*Freeman's Journal*, 26 July 1830, p. 1  
 
 
 # Citation: 

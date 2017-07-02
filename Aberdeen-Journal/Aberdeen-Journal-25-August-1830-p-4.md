@@ -1,27 +1,27 @@
 # *Aberdeen Journal*, 25 August 1830, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 11 August 1830, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-11-August-1830-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 14 August 1830, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-14-August-1830-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 16 August 1830, p. 3](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-16-August-1830-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 17 August 1830, p. 1](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-17-August-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 17 August 1830, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-17-August-1830-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 17 August 1830, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-17-August-1830-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 18 August 1830, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-18-August-1830-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 19 August 1830, p. 3](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-19-August-1830-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 20 August 1830, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-20-August-1830-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 20 August 1830, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-20-August-1830-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 21 August 1830, p. 3](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-21-August-1830-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 21 August 1830, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-21-August-1830-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 21 August 1830, p. 4](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-21-August-1830-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 23 August 1830, p. 3](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-23-August-1830-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 23 August 1830, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-23-August-1830-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 24 August 1830, p. 4](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-24-August-1830-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-11-August-1830-p-4)*Freeman's Journal*, 11 August 1830, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-14-August-1830-p-2)*The Times*, 14 August 1830, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-16-August-1830-p-3)*Caledonian Mercury*, 16 August 1830, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-17-August-1830-p-1)*Bristol Mercury*, 17 August 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-17-August-1830-p-2)*Freeman's Journal*, 17 August 1830, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-17-August-1830-p-2)*The Times*, 17 August 1830, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-18-August-1830-p-4)*The Times*, 18 August 1830, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-19-August-1830-p-3)*Caledonian Mercury*, 19 August 1830, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-20-August-1830-p-4)*Freeman's Journal*, 20 August 1830, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-20-August-1830-p-2)*The Times*, 20 August 1830, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-21-August-1830-p-3)*Freeman's Journal*, 21 August 1830, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-21-August-1830-p-4)*Ipswich Journal*, 21 August 1830, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-21-August-1830-p-4)*Newcastle Courant*, 21 August 1830, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-23-August-1830-p-3)*Freeman's Journal*, 23 August 1830, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-23-August-1830-p-4)*Freeman's Journal*, 23 August 1830, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-24-August-1830-p-4)*Bristol Mercury*, 24 August 1830, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 26 August 1830, p. 3](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-26-August-1830-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 27 August 1830, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-27-August-1830-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 29 August 1830, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-29-August-1830-p-11)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-26-August-1830-p-3)*Caledonian Mercury*, 26 August 1830, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-27-August-1830-p-4)*Freeman's Journal*, 27 August 1830, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-29-August-1830-p-11)*Examiner*, 29 August 1830, p. 11  
 
 
 # Citation: 

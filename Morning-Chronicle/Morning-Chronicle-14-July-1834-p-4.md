@@ -1,11 +1,11 @@
 # *Morning Chronicle*, 14 July 1834, p. 4  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 14 July 1834, p. 5](https://mhbeals.github.io/sap_html/The-Times/The-Times-14-July-1834-p-5)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 14 July 1834, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-14-July-1834-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-14-July-1834-p-5)*The Times*, 14 July 1834, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-14-July-1834-p-7)*The Times*, 14 July 1834, p. 7  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 19 July 1834, p. 4](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-19-July-1834-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-19-July-1834-p-4)*Preston Chronicle*, 19 July 1834, p. 4  
 
 
 # Citation: 

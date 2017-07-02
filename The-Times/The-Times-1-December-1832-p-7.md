@@ -1,13 +1,13 @@
 # *The Times*, 1 December 1832, p. 7  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 11 November 1832, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-11-November-1832-p-14)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-11-November-1832-p-14)*Examiner*, 11 November 1832, p. 14  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 2 December 1832, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-2-December-1832-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 7 December 1832, p. 2](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-7-December-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 8 December 1832, p. 2](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-8-December-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 8 December 1832, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-8-December-1832-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-2-December-1832-p-13)*Examiner*, 2 December 1832, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-7-December-1832-p-2)*Belfast News-Letter*, 7 December 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-8-December-1832-p-2)*Preston Chronicle*, 8 December 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-8-December-1832-p-2)*Newcastle Courant*, 8 December 1832, p. 2  
 
 
 # Citation: 

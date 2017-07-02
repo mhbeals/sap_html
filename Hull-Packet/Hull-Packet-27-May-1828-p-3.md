@@ -1,17 +1,17 @@
 # *Hull Packet*, 27 May 1828, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 16 May 1828, p. 6](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-16-May-1828-p-6)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 22 May 1828, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-22-May-1828-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 23 May 1828, p. 6](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-23-May-1828-p-6)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 23 May 1828, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-23-May-1828-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 24 May 1828, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-24-May-1828-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 24 May 1828, p. 4](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-24-May-1828-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 25 May 1828, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-25-May-1828-p-13)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-16-May-1828-p-6)*Liverpool Mercury*, 16 May 1828, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-22-May-1828-p-4)*Caledonian Mercury*, 22 May 1828, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-23-May-1828-p-6)*Liverpool Mercury*, 23 May 1828, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-23-May-1828-p-3)*The Times*, 23 May 1828, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-24-May-1828-p-3)*Newcastle Courant*, 24 May 1828, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-24-May-1828-p-4)*Newcastle Courant*, 24 May 1828, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-25-May-1828-p-13)*Examiner*, 25 May 1828, p. 13  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 31 May 1828, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-31-May-1828-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 31 May 1828, p. 3](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-31-May-1828-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-31-May-1828-p-4)*Ipswich Journal*, 31 May 1828, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-31-May-1828-p-3)*Leeds Mercury*, 31 May 1828, p. 3  
 
 
 # Citation: 

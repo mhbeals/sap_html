@@ -1,12 +1,12 @@
 # *NorthWales Chronicle*, 21 January 1834, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 4 January 1834, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-4-January-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 10 January 1834, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-10-January-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 15 January 1834, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-15-January-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 17 January 1834, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-17-January-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 18 January 1834, p. 1](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-18-January-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 20 January 1834, p. 1](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-20-January-1834-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-4-January-1834-p-2)*Bristol Mercury*, 4 January 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-10-January-1834-p-1)*Hull Packet*, 10 January 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-15-January-1834-p-1)*Derby Mercury*, 15 January 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-17-January-1834-p-1)*Hull Packet*, 17 January 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-18-January-1834-p-1)*Ipswich Journal*, 18 January 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-20-January-1834-p-1)*Caledonian Mercury*, 20 January 1834, p. 1  
 
 
 # Citation: 

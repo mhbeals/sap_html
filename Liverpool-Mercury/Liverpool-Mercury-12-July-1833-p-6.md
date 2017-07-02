@@ -1,20 +1,20 @@
 # *Liverpool Mercury*, 12 July 1833, p. 6  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 1 July 1833, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-1-July-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 3 July 1833, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-3-July-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 6 July 1833, p. 2](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-6-July-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 6 July 1833, p. 4](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-6-July-1833-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-1-July-1833-p-4)*Morning Chronicle*, 1 July 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-3-July-1833-p-2)*Freeman's Journal*, 3 July 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-6-July-1833-p-2)*Ipswich Journal*, 6 July 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-6-July-1833-p-4)*Preston Chronicle*, 6 July 1833, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 13 July 1833, p. 3](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-13-July-1833-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 13 July 1833, p. 2](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-13-July-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 13 July 1833, p. 3](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-13-July-1833-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 17 July 1833, p. 3](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-17-July-1833-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 20 July 1833, p. 3](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-20-July-1833-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 20 July 1833, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-20-July-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 20 July 1833, p. 4](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-20-July-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 2 August 1833, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-2-August-1833-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-13-July-1833-p-3)*Preston Chronicle*, 13 July 1833, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-13-July-1833-p-2)*Manchester Times*, 13 July 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-13-July-1833-p-3)*Manchester Times*, 13 July 1833, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-17-July-1833-p-3)*Derby Mercury*, 17 July 1833, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-20-July-1833-p-3)*Preston Chronicle*, 20 July 1833, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-20-July-1833-p-2)*Bristol Mercury*, 20 July 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-20-July-1833-p-4)*Bristol Mercury*, 20 July 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-2-August-1833-p-4)*Hull Packet*, 2 August 1833, p. 4  
 
 
 # Citation: 

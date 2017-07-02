@@ -1,9 +1,9 @@
 # *Morning Chronicle*, 25 July 1833, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 27 July 1833, p. 4](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-27-July-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 28 July 1833, p. 7](https://mhbeals.github.io/sap_html/Examiner/Examiner-28-July-1833-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 28 July 1833, p. 8](https://mhbeals.github.io/sap_html/Examiner/Examiner-28-July-1833-p-8)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-27-July-1833-p-4)*Leeds Mercury*, 27 July 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-28-July-1833-p-7)*Examiner*, 28 July 1833, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-28-July-1833-p-8)*Examiner*, 28 July 1833, p. 8  
 
 
 # Citation: 

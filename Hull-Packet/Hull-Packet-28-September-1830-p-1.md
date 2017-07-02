@@ -1,19 +1,19 @@
 # *Hull Packet*, 28 September 1830, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 9 September 1830, p. 1](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-9-September-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 16 September 1830, p. 1](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-16-September-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 17 September 1830, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-17-September-1830-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 19 September 1830, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-19-September-1830-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 22 September 1830, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-22-September-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 23 September 1830, p. 1](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-23-September-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 25 September 1830, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-25-September-1830-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hampshire Portsmouth Telegraph*, 27 September 1830, p. 2](https://mhbeals.github.io/sap_html/Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-27-September-1830-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-9-September-1830-p-1)*NorthWales Chronicle*, 9 September 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-16-September-1830-p-1)*NorthWales Chronicle*, 16 September 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-17-September-1830-p-4)*The Times*, 17 September 1830, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-19-September-1830-p-16)*Examiner*, 19 September 1830, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-22-September-1830-p-1)*Derby Mercury*, 22 September 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-23-September-1830-p-1)*NorthWales Chronicle*, 23 September 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-25-September-1830-p-4)*Ipswich Journal*, 25 September 1830, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-27-September-1830-p-2)*Hampshire Portsmouth Telegraph*, 27 September 1830, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 30 September 1830, p. 1](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-30-September-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 8 October 1830, p. 5](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-8-October-1830-p-5)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 15 October 1830, p. 5](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-15-October-1830-p-5)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-30-September-1830-p-1)*NorthWales Chronicle*, 30 September 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-8-October-1830-p-5)*Liverpool Mercury*, 8 October 1830, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-15-October-1830-p-5)*Liverpool Mercury*, 15 October 1830, p. 5  
 
 
 # Citation: 

@@ -1,12 +1,12 @@
 # *Examiner*, 12 January 1834, p. 14  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 13 January 1834, p. 1](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-13-January-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 18 January 1834, p. 1](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-18-January-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 20 January 1834, p. 1](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-20-January-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 24 January 1834, p. 5](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-24-January-1834-p-5)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 25 January 1834, p. 1](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-25-January-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 27 January 1834, p. 1](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-27-January-1834-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-13-January-1834-p-1)*Caledonian Mercury*, 13 January 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-18-January-1834-p-1)*Bristol Mercury*, 18 January 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-20-January-1834-p-1)*Caledonian Mercury*, 20 January 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-24-January-1834-p-5)*Liverpool Mercury*, 24 January 1834, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-25-January-1834-p-1)*Bristol Mercury*, 25 January 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-27-January-1834-p-1)*Caledonian Mercury*, 27 January 1834, p. 1  
 
 
 # Citation: 

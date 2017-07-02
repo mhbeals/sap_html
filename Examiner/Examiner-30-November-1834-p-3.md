@@ -1,10 +1,10 @@
 # *Examiner*, 30 November 1834, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 2 December 1834, p. 3](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-2-December-1834-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 6 December 1834, p. 4](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-6-December-1834-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 6 December 1834, p. 4](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-6-December-1834-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 8 December 1834, p. 1](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-8-December-1834-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-2-December-1834-p-3)*Morning Chronicle*, 2 December 1834, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-6-December-1834-p-4)*Bristol Mercury*, 6 December 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-6-December-1834-p-4)*Manchester Times*, 6 December 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-8-December-1834-p-1)*Caledonian Mercury*, 8 December 1834, p. 1  
 
 
 # Citation: 

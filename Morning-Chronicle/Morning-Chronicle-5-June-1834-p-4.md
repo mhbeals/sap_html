@@ -1,14 +1,14 @@
 # *Morning Chronicle*, 5 June 1834, p. 4  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 5 June 1834, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-5-June-1834-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-5-June-1834-p-3)*The Times*, 5 June 1834, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 7 June 1834, p. 2](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-7-June-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 8 June 1834, p. 12](https://mhbeals.github.io/sap_html/Examiner/Examiner-8-June-1834-p-12)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 10 June 1834, p. 1](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-10-June-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 11 June 1834, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-11-June-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 14 June 1834, p. 4](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-14-June-1834-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-7-June-1834-p-2)*Ipswich Journal*, 7 June 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-8-June-1834-p-12)*Examiner*, 8 June 1834, p. 12  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-10-June-1834-p-1)*Belfast News-Letter*, 10 June 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-11-June-1834-p-2)*Derby Mercury*, 11 June 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-14-June-1834-p-4)*Preston Chronicle*, 14 June 1834, p. 4  
 
 
 # Citation: 

@@ -1,13 +1,13 @@
 # *Liverpool Mercury*, 18 May 1832, p. 6  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 3 May 1832, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-3-May-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 11 May 1832, p. 1](https://mhbeals.github.io/sap_html/The-Times/The-Times-11-May-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 14 May 1832, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-14-May-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 15 May 1832, p. 2](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-15-May-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 16 May 1832, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-16-May-1832-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 16 May 1832, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-16-May-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 17 May 1832, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-17-May-1832-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-3-May-1832-p-2)*Freeman's Journal*, 3 May 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-11-May-1832-p-1)*The Times*, 11 May 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-14-May-1832-p-2)*The Times*, 14 May 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-15-May-1832-p-2)*Leeds Mercury*, 15 May 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-16-May-1832-p-4)*Derby Mercury*, 16 May 1832, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-16-May-1832-p-2)*The Times*, 16 May 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-17-May-1832-p-4)*Freeman's Journal*, 17 May 1832, p. 4  
 
 
 # Citation: 

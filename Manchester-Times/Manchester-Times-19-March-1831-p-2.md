@@ -1,19 +1,19 @@
 # *Manchester Times*, 19 March 1831, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 12 March 1831, p. 8](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-12-March-1831-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 12 March 1831, p. 9](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-12-March-1831-p-9)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 12 March 1831, p. 10](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-12-March-1831-p-10)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 16 March 1831, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-16-March-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 16 March 1831, p. 5](https://mhbeals.github.io/sap_html/The-Times/The-Times-16-March-1831-p-5)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-12-March-1831-p-8)*Cobbet's Weekly Political Register*, 12 March 1831, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-12-March-1831-p-9)*Cobbet's Weekly Political Register*, 12 March 1831, p. 9  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-12-March-1831-p-10)*Cobbet's Weekly Political Register*, 12 March 1831, p. 10  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-16-March-1831-p-4)*Morning Chronicle*, 16 March 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-16-March-1831-p-5)*The Times*, 16 March 1831, p. 5  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 19 March 1831, p. 2](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-19-March-1831-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-19-March-1831-p-2)*Preston Chronicle*, 19 March 1831, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 22 March 1831, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-22-March-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 22 March 1831, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-22-March-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 26 March 1831, p. 4](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-26-March-1831-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-22-March-1831-p-2)*Bristol Mercury*, 22 March 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-22-March-1831-p-4)*Hull Packet*, 22 March 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-26-March-1831-p-4)*Preston Chronicle*, 26 March 1831, p. 4  
 
 
 # Citation: 

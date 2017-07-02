@@ -1,23 +1,23 @@
 # *Liverpool Mercury*, 30 July 1830, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 17 July 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-17-July-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 17 July 1830, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-17-July-1830-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 19 July 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-19-July-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 20 July 1830, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-20-July-1830-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 21 July 1830, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-21-July-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 27 July 1830, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-27-July-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 28 July 1830, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-28-July-1830-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-17-July-1830-p-1)*Freeman's Journal*, 17 July 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-17-July-1830-p-3)*Newcastle Courant*, 17 July 1830, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-19-July-1830-p-1)*Freeman's Journal*, 19 July 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-20-July-1830-p-2)*Freeman's Journal*, 20 July 1830, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-21-July-1830-p-1)*Derby Mercury*, 21 July 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-27-July-1830-p-1)*Hull Packet*, 27 July 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-28-July-1830-p-2)*Derby Mercury*, 28 July 1830, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 31 July 1830, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-31-July-1830-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hampshire Portsmouth Telegraph*, 2 August 1830, p. 2](https://mhbeals.github.io/sap_html/Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-2-August-1830-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 3 August 1830, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-3-August-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 4 August 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-4-August-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 7 August 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-7-August-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hampshire Portsmouth Telegraph*, 9 August 1830, p. 2](https://mhbeals.github.io/sap_html/Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-9-August-1830-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 11 August 1830, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-11-August-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hampshire Portsmouth Telegraph*, 16 August 1830, p. 2](https://mhbeals.github.io/sap_html/Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-16-August-1830-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-31-July-1830-p-3)*Newcastle Courant*, 31 July 1830, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-2-August-1830-p-2)*Hampshire Portsmouth Telegraph*, 2 August 1830, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-3-August-1830-p-1)*Hull Packet*, 3 August 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-4-August-1830-p-1)*Freeman's Journal*, 4 August 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-7-August-1830-p-1)*Freeman's Journal*, 7 August 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-9-August-1830-p-2)*Hampshire Portsmouth Telegraph*, 9 August 1830, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-11-August-1830-p-1)*Derby Mercury*, 11 August 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-16-August-1830-p-2)*Hampshire Portsmouth Telegraph*, 16 August 1830, p. 2  
 
 
 # Citation: 

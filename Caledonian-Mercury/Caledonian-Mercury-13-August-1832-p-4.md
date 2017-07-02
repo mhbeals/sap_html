@@ -1,18 +1,18 @@
 # *Caledonian Mercury*, 13 August 1832, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 4 August 1832, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-4-August-1832-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 6 August 1832, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-6-August-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 6 August 1832, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-6-August-1832-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 9 August 1832, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-9-August-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 9 August 1832, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-9-August-1832-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 10 August 1832, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-10-August-1832-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 11 August 1832, p. 1](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-11-August-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 11 August 1832, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-11-August-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Poor Man's Guardian*, 11 August 1832, p. 5](https://mhbeals.github.io/sap_html/Poor-Man's-Guardian/Poor-Man's-Guardian-11-August-1832-p-5)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-4-August-1832-p-4)*Morning Chronicle*, 4 August 1832, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-6-August-1832-p-2)*Morning Chronicle*, 6 August 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-6-August-1832-p-4)*The Times*, 6 August 1832, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-9-August-1832-p-1)*Morning Chronicle*, 9 August 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-9-August-1832-p-3)*The Times*, 9 August 1832, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-10-August-1832-p-4)*Morning Chronicle*, 10 August 1832, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-11-August-1832-p-1)*Bristol Mercury*, 11 August 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-11-August-1832-p-2)*Freeman's Journal*, 11 August 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Poor-Mans-Guardian/Poor-Mans-Guardian-11-August-1832-p-5)*Poor Man's Guardian*, 11 August 1832, p. 5  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 17 August 1832, p. 6](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-17-August-1832-p-6)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-17-August-1832-p-6)*Liverpool Mercury*, 17 August 1832, p. 6  
 
 
 # Citation: 

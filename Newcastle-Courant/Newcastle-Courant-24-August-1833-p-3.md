@@ -1,18 +1,18 @@
 # *Newcastle Courant*, 24 August 1833, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 15 August 1833, p. 1](https://mhbeals.github.io/sap_html/The-Times/The-Times-15-August-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 16 August 1833, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-16-August-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 16 August 1833, p. 1](https://mhbeals.github.io/sap_html/The-Times/The-Times-16-August-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 16 August 1833, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-16-August-1833-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 17 August 1833, p. 2](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-17-August-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 21 August 1833, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-21-August-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Trewman's Exeter Flying Post*, 22 August 1833, p. 4](https://mhbeals.github.io/sap_html/Trewman's-Exeter-Flying-Post/Trewman's-Exeter-Flying-Post-22-August-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 23 August 1833, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-23-August-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 23 August 1833, p. 2](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-23-August-1833-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-15-August-1833-p-1)*The Times*, 15 August 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-16-August-1833-p-1)*Morning Chronicle*, 16 August 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-16-August-1833-p-1)*The Times*, 16 August 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-16-August-1833-p-3)*The Times*, 16 August 1833, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-17-August-1833-p-2)*Ipswich Journal*, 17 August 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-21-August-1833-p-4)*Derby Mercury*, 21 August 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewmans-Exeter-Flying-Post/Trewmans-Exeter-Flying-Post-22-August-1833-p-4)*Trewman's Exeter Flying Post*, 22 August 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-23-August-1833-p-4)*Hull Packet*, 23 August 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-23-August-1833-p-2)*Liverpool Mercury*, 23 August 1833, p. 2  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 24 August 1833, p. 4](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-24-August-1833-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-24-August-1833-p-4)*Manchester Times*, 24 August 1833, p. 4  
 
 
 # Citation: 

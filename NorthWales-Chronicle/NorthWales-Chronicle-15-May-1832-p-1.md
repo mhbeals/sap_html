@@ -1,9 +1,9 @@
 # *NorthWales Chronicle*, 15 May 1832, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 2 May 1832, p. 6](https://mhbeals.github.io/sap_html/The-Times/The-Times-2-May-1832-p-6)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 4 May 1832, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-4-May-1832-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 5 May 1832, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-5-May-1832-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-2-May-1832-p-6)*The Times*, 2 May 1832, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-4-May-1832-p-3)*The Times*, 4 May 1832, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-5-May-1832-p-3)*The Times*, 5 May 1832, p. 3  
 
 
 # Citation: 

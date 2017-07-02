@@ -1,16 +1,16 @@
 # *Caledonian Mercury*, 7 September 1829, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 4 September 1829, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-4-September-1829-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 4 September 1829, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-4-September-1829-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 4 September 1829, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-4-September-1829-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 5 September 1829, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-5-September-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 5 September 1829, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-5-September-1829-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 6 September 1829, p. 9](https://mhbeals.github.io/sap_html/Examiner/Examiner-6-September-1829-p-9)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-4-September-1829-p-2)*Morning Chronicle*, 4 September 1829, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-4-September-1829-p-2)*The Times*, 4 September 1829, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-4-September-1829-p-3)*The Times*, 4 September 1829, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-5-September-1829-p-1)*Morning Chronicle*, 5 September 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-5-September-1829-p-2)*The Times*, 5 September 1829, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-6-September-1829-p-9)*Examiner*, 6 September 1829, p. 9  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 8 September 1829, p. 1](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-8-September-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 12 September 1829, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-12-September-1829-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-8-September-1829-p-1)*Belfast News-Letter*, 8 September 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-12-September-1829-p-2)*Newcastle Courant*, 12 September 1829, p. 2  
 
 
 # Citation: 

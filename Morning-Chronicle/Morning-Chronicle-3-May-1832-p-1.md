@@ -1,14 +1,14 @@
 # *Morning Chronicle*, 3 May 1832, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 28 April 1832, p. 3](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-28-April-1832-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 30 April 1832, p. 3](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-30-April-1832-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 30 April 1832, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-30-April-1832-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-28-April-1832-p-3)*Caledonian Mercury*, 28 April 1832, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-30-April-1832-p-3)*Caledonian Mercury*, 30 April 1832, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-30-April-1832-p-4)*Caledonian Mercury*, 30 April 1832, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 4 May 1832, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-4-May-1832-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 5 May 1832, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-5-May-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 9 May 1832, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-9-May-1832-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-4-May-1832-p-3)*The Times*, 4 May 1832, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-5-May-1832-p-2)*Freeman's Journal*, 5 May 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-9-May-1832-p-4)*Derby Mercury*, 9 May 1832, p. 4  
 
 
 # Citation: 

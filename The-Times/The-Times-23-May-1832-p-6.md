@@ -1,16 +1,16 @@
 # *The Times*, 23 May 1832, p. 6  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 21 May 1832, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-21-May-1832-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-21-May-1832-p-4)*Morning Chronicle*, 21 May 1832, p. 4  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 23 May 1832, p. 2](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-23-May-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 23 May 1832, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-23-May-1832-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-23-May-1832-p-2)*Aberdeen Journal*, 23 May 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-23-May-1832-p-4)*Morning Chronicle*, 23 May 1832, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 25 May 1832, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-25-May-1832-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 26 May 1832, p. 4](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-26-May-1832-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 27 May 1832, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-27-May-1832-p-13)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-25-May-1832-p-4)*Morning Chronicle*, 25 May 1832, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-26-May-1832-p-4)*Preston Chronicle*, 26 May 1832, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-27-May-1832-p-13)*Examiner*, 27 May 1832, p. 13  
 
 
 # Citation: 

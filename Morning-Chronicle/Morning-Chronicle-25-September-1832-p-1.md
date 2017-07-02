@@ -1,19 +1,19 @@
 # *Morning Chronicle*, 25 September 1832, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 21 September 1832, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-21-September-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 22 September 1832, p. 3](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-22-September-1832-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-21-September-1832-p-2)*Freeman's Journal*, 21 September 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-22-September-1832-p-3)*Caledonian Mercury*, 22 September 1832, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 27 September 1832, p. 2](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-27-September-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 29 September 1832, p. 2](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-29-September-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 29 September 1832, p. 4](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-29-September-1832-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 29 September 1832, p. 4](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-29-September-1832-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 30 September 1832, p. 4](https://mhbeals.github.io/sap_html/Examiner/Examiner-30-September-1832-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 30 September 1832, p. 10](https://mhbeals.github.io/sap_html/Examiner/Examiner-30-September-1832-p-10)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 6 October 1832, p. 17](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-6-October-1832-p-17)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 6 October 1832, p. 18](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-6-October-1832-p-18)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 6 October 1832, p. 19](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-6-October-1832-p-19)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-27-September-1832-p-2)*Caledonian Mercury*, 27 September 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-29-September-1832-p-2)*Caledonian Mercury*, 29 September 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-29-September-1832-p-4)*Preston Chronicle*, 29 September 1832, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-29-September-1832-p-4)*Manchester Times*, 29 September 1832, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-30-September-1832-p-4)*Examiner*, 30 September 1832, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-30-September-1832-p-10)*Examiner*, 30 September 1832, p. 10  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-6-October-1832-p-17)*Cobbet's Weekly Political Register*, 6 October 1832, p. 17  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-6-October-1832-p-18)*Cobbet's Weekly Political Register*, 6 October 1832, p. 18  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-6-October-1832-p-19)*Cobbet's Weekly Political Register*, 6 October 1832, p. 19  
 
 
 # Citation: 

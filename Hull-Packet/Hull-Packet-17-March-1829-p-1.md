@@ -1,31 +1,31 @@
 # *Hull Packet*, 17 March 1829, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 25 February 1829, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-25-February-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 28 February 1829, p. 1](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-28-February-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 6 March 1829, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-6-March-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 7 March 1829, p. 1](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-7-March-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 7 March 1829, p. 4](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-7-March-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 14 March 1829, p. 1](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-14-March-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 14 March 1829, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-14-March-1829-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 14 March 1829, p. 4](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-14-March-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 14 March 1829, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-14-March-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hampshire Portsmouth Telegraph*, 16 March 1829, p. 3](https://mhbeals.github.io/sap_html/Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-16-March-1829-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-25-February-1829-p-4)*Derby Mercury*, 25 February 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-28-February-1829-p-1)*Newcastle Courant*, 28 February 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-6-March-1829-p-7)*Liverpool Mercury*, 6 March 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-7-March-1829-p-1)*Leeds Mercury*, 7 March 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-7-March-1829-p-4)*Leeds Mercury*, 7 March 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-14-March-1829-p-1)*Manchester Times*, 14 March 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-14-March-1829-p-3)*Newcastle Courant*, 14 March 1829, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-14-March-1829-p-4)*Newcastle Courant*, 14 March 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-14-March-1829-p-7)*The Times*, 14 March 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-16-March-1829-p-3)*Hampshire Portsmouth Telegraph*, 16 March 1829, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 18 March 1829, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-18-March-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 21 March 1829, p. 1](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-21-March-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 21 March 1829, p. 1](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-21-March-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 23 March 1829, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-23-March-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 28 March 1829, p. 3](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-28-March-1829-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 28 March 1829, p. 4](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-28-March-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 28 March 1829, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-28-March-1829-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 28 March 1829, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-28-March-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 29 March 1829, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-29-March-1829-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 2 April 1829, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-2-April-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 4 April 1829, p. 1](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-4-April-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 4 April 1829, p. 4](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-4-April-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 4 April 1829, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-4-April-1829-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-18-March-1829-p-1)*Derby Mercury*, 18 March 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-21-March-1829-p-1)*Leeds Mercury*, 21 March 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-21-March-1829-p-1)*Manchester Times*, 21 March 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-23-March-1829-p-7)*The Times*, 23 March 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-28-March-1829-p-3)*Leeds Mercury*, 28 March 1829, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-28-March-1829-p-4)*Manchester Times*, 28 March 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-28-March-1829-p-3)*The Times*, 28 March 1829, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-28-March-1829-p-7)*The Times*, 28 March 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-29-March-1829-p-16)*Examiner*, 29 March 1829, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-2-April-1829-p-1)*Morning Chronicle*, 2 April 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-4-April-1829-p-1)*Manchester Times*, 4 April 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-4-April-1829-p-4)*Manchester Times*, 4 April 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-4-April-1829-p-3)*Newcastle Courant*, 4 April 1829, p. 3  
 
 
 # Citation: 

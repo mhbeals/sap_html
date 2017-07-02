@@ -1,7 +1,7 @@
 # *Caledonian Mercury*, 5 January 1832, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 21 January 1832, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-21-January-1832-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-21-January-1832-p-3)*Newcastle Courant*, 21 January 1832, p. 3  
 
 
 # Citation: 

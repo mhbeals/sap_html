@@ -1,24 +1,24 @@
 # *Aberdeen Journal*, 31 March 1830, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 13 March 1830, p. 4](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-13-March-1830-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 15 March 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-15-March-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 16 March 1830, p. 3](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-16-March-1830-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 16 March 1830, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-16-March-1830-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 16 March 1830, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-16-March-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 18 March 1830, p. 1](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-18-March-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 20 March 1830, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-20-March-1830-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 22 March 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-22-March-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 23 March 1830, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-23-March-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 29 March 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-29-March-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 30 March 1830, p. 3](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-30-March-1830-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 30 March 1830, p. 1](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-30-March-1830-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-13-March-1830-p-4)*Newcastle Courant*, 13 March 1830, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-15-March-1830-p-1)*Freeman's Journal*, 15 March 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-16-March-1830-p-3)*Belfast News-Letter*, 16 March 1830, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-16-March-1830-p-2)*Bristol Mercury*, 16 March 1830, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-16-March-1830-p-1)*Hull Packet*, 16 March 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-18-March-1830-p-1)*Caledonian Mercury*, 18 March 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-20-March-1830-p-3)*Newcastle Courant*, 20 March 1830, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-22-March-1830-p-1)*Freeman's Journal*, 22 March 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-23-March-1830-p-1)*Hull Packet*, 23 March 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-29-March-1830-p-1)*Freeman's Journal*, 29 March 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-30-March-1830-p-3)*Belfast News-Letter*, 30 March 1830, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-30-March-1830-p-1)*Bristol Mercury*, 30 March 1830, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 5 April 1830, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-5-April-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 6 April 1830, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-6-April-1830-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 6 April 1830, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-6-April-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 7 April 1830, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-7-April-1830-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-5-April-1830-p-1)*Freeman's Journal*, 5 April 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-6-April-1830-p-2)*Bristol Mercury*, 6 April 1830, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-6-April-1830-p-1)*Hull Packet*, 6 April 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-7-April-1830-p-1)*Derby Mercury*, 7 April 1830, p. 1  
 
 
 # Citation: 

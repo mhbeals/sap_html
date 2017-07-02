@@ -1,16 +1,16 @@
 # *Examiner*, 2 February 1834, p. 7  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 28 January 1834, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-28-January-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 29 January 1834, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-29-January-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 31 January 1834, p. 2](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-31-January-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 31 January 1834, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-31-January-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 1 February 1834, p. 1](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-1-February-1834-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-28-January-1834-p-2)*Morning Chronicle*, 28 January 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-29-January-1834-p-2)*Derby Mercury*, 29 January 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-31-January-1834-p-2)*Belfast News-Letter*, 31 January 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-31-January-1834-p-2)*Morning Chronicle*, 31 January 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-1-February-1834-p-1)*Preston Chronicle*, 1 February 1834, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 5 February 1834, p. 2](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-5-February-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 8 February 1834, p. 4](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-8-February-1834-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 8 February 1834, p. 3](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-8-February-1834-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-5-February-1834-p-2)*Aberdeen Journal*, 5 February 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-8-February-1834-p-4)*Preston Chronicle*, 8 February 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-8-February-1834-p-3)*Manchester Times*, 8 February 1834, p. 3  
 
 
 # Citation: 

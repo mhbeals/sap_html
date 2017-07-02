@@ -1,14 +1,14 @@
 # *Morning Chronicle*, 14 November 1834, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 28 October 1834, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-28-October-1834-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 7 November 1834, p. 5](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-7-November-1834-p-5)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-28-October-1834-p-7)*The Times*, 28 October 1834, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-7-November-1834-p-5)*Liverpool Mercury*, 7 November 1834, p. 5  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 15 November 1834, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-15-November-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 16 November 1834, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-16-November-1834-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 21 November 1834, p. 7](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-21-November-1834-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 22 November 1834, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-22-November-1834-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-15-November-1834-p-2)*Bristol Mercury*, 15 November 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-16-November-1834-p-15)*Examiner*, 16 November 1834, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-21-November-1834-p-7)*Liverpool Mercury*, 21 November 1834, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-22-November-1834-p-7)*The Times*, 22 November 1834, p. 7  
 
 
 # Citation: 

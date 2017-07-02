@@ -1,8 +1,8 @@
 # *Morning Chronicle*, 22 May 1834, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 25 May 1834, p. 2](https://mhbeals.github.io/sap_html/Examiner/Examiner-25-May-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 25 May 1834, p. 10](https://mhbeals.github.io/sap_html/Examiner/Examiner-25-May-1834-p-10)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-25-May-1834-p-2)*Examiner*, 25 May 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-25-May-1834-p-10)*Examiner*, 25 May 1834, p. 10  
 
 
 # Citation: 

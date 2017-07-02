@@ -1,13 +1,13 @@
 # *Liverpool Mercury*, 14 November 1834, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 1 November 1834, p. 1](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-1-November-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 8 November 1834, p. 2](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-8-November-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 8 November 1834, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-8-November-1834-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 10 November 1834, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-10-November-1834-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-1-November-1834-p-1)*Ipswich Journal*, 1 November 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-8-November-1834-p-2)*Manchester Times*, 8 November 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-8-November-1834-p-3)*Newcastle Courant*, 8 November 1834, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-10-November-1834-p-3)*The Times*, 10 November 1834, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 15 November 1834, p. 1](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-15-November-1834-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-15-November-1834-p-1)*Ipswich Journal*, 15 November 1834, p. 1  
 
 
 # Citation: 

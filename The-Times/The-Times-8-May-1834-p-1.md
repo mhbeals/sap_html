@@ -1,7 +1,7 @@
 # *The Times*, 8 May 1834, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 27 April 1834, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-27-April-1834-p-15)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-27-April-1834-p-15)*Examiner*, 27 April 1834, p. 15  
 
 
 # Citation: 

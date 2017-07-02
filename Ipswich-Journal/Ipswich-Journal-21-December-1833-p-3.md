@@ -1,8 +1,8 @@
 # *Ipswich Journal*, 21 December 1833, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 14 December 1833, p. 32](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-14-December-1833-p-32)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 20 December 1833, p. 5](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-20-December-1833-p-5)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-14-December-1833-p-32)*Cobbet's Weekly Political Register*, 14 December 1833, p. 32  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-20-December-1833-p-5)*Liverpool Mercury*, 20 December 1833, p. 5  
 
 
 # Citation: 

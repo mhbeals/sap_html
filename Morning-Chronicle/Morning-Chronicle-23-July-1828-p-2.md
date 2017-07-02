@@ -1,17 +1,17 @@
 # *Morning Chronicle*, 23 July 1828, p. 2  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 23 July 1828, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-23-July-1828-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-23-July-1828-p-2)*The Times*, 23 July 1828, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 26 July 1828, p. 2](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-26-July-1828-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 26 July 1828, p. 2](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-26-July-1828-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 27 July 1828, p. 5](https://mhbeals.github.io/sap_html/Examiner/Examiner-27-July-1828-p-5)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 27 July 1828, p. 9](https://mhbeals.github.io/sap_html/Examiner/Examiner-27-July-1828-p-9)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 27 July 1828, p. 10](https://mhbeals.github.io/sap_html/Examiner/Examiner-27-July-1828-p-10)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 29 July 1828, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-29-July-1828-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 30 July 1828, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-30-July-1828-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 31 July 1828, p. 4](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-31-July-1828-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-26-July-1828-p-2)*Caledonian Mercury*, 26 July 1828, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-26-July-1828-p-2)*Leeds Mercury*, 26 July 1828, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-27-July-1828-p-5)*Examiner*, 27 July 1828, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-27-July-1828-p-9)*Examiner*, 27 July 1828, p. 9  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-27-July-1828-p-10)*Examiner*, 27 July 1828, p. 10  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-29-July-1828-p-4)*Hull Packet*, 29 July 1828, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-30-July-1828-p-4)*Derby Mercury*, 30 July 1828, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-31-July-1828-p-4)*NorthWales Chronicle*, 31 July 1828, p. 4  
 
 
 # Citation: 

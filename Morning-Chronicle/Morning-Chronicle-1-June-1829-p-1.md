@@ -1,23 +1,23 @@
 # *Morning Chronicle*, 1 June 1829, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 14 May 1829, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-14-May-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 16 May 1829, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-16-May-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 23 May 1829, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-23-May-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 30 May 1829, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-30-May-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 30 May 1829, p. 8](https://mhbeals.github.io/sap_html/The-Times/The-Times-30-May-1829-p-8)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-14-May-1829-p-7)*The Times*, 14 May 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-16-May-1829-p-7)*The Times*, 16 May 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-23-May-1829-p-7)*The Times*, 23 May 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-30-May-1829-p-7)*The Times*, 30 May 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-30-May-1829-p-8)*The Times*, 30 May 1829, p. 8  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 1 June 1829, p. 1](https://mhbeals.github.io/sap_html/The-Times/The-Times-1-June-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 1 June 1829, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-1-June-1829-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-1-June-1829-p-1)*The Times*, 1 June 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-1-June-1829-p-4)*The Times*, 1 June 1829, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 5 June 1829, p. 8](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-5-June-1829-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 6 June 1829, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-6-June-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 7 June 1829, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-7-June-1829-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 13 June 1829, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-13-June-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 20 June 1829, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-20-June-1829-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 20 June 1829, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-20-June-1829-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-5-June-1829-p-8)*Liverpool Mercury*, 5 June 1829, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-6-June-1829-p-4)*The Times*, 6 June 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-7-June-1829-p-13)*Examiner*, 7 June 1829, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-13-June-1829-p-7)*The Times*, 13 June 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-20-June-1829-p-3)*Newcastle Courant*, 20 June 1829, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-20-June-1829-p-7)*The Times*, 20 June 1829, p. 7  
 
 
 # Citation: 

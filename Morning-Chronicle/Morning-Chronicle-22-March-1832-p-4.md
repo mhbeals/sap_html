@@ -1,16 +1,16 @@
 # *Morning Chronicle*, 22 March 1832, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 19 March 1832, p. 3](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-19-March-1832-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-19-March-1832-p-3)*Caledonian Mercury*, 19 March 1832, p. 3  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 22 March 1832, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-22-March-1832-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-22-March-1832-p-4)*The Times*, 22 March 1832, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 24 March 1832, p. 4](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-24-March-1832-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 28 March 1832, p. 3](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-28-March-1832-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 31 March 1832, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-31-March-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 3 April 1832, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-3-April-1832-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-24-March-1832-p-4)*Preston Chronicle*, 24 March 1832, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-28-March-1832-p-3)*Derby Mercury*, 28 March 1832, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-31-March-1832-p-2)*Newcastle Courant*, 31 March 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-3-April-1832-p-4)*Hull Packet*, 3 April 1832, p. 4  
 
 
 # Citation: 

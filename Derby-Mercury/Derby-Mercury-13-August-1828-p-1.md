@@ -1,15 +1,15 @@
 # *Derby Mercury*, 13 August 1828, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 26 July 1828, p. 1](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-26-July-1828-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 8 August 1828, p. 5](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-8-August-1828-p-5)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 9 August 1828, p. 1](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-9-August-1828-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 9 August 1828, p. 2](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-9-August-1828-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-26-July-1828-p-1)*Leeds Mercury*, 26 July 1828, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-8-August-1828-p-5)*Liverpool Mercury*, 8 August 1828, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-9-August-1828-p-1)*Leeds Mercury*, 9 August 1828, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-9-August-1828-p-2)*Leeds Mercury*, 9 August 1828, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 16 August 1828, p. 1](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-16-August-1828-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 23 August 1828, p. 1](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-23-August-1828-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 27 August 1828, p. 1](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-27-August-1828-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-16-August-1828-p-1)*Newcastle Courant*, 16 August 1828, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-23-August-1828-p-1)*Newcastle Courant*, 23 August 1828, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-27-August-1828-p-1)*Aberdeen Journal*, 27 August 1828, p. 1  
 
 
 # Citation: 

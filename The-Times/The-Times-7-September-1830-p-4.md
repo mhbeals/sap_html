@@ -1,8 +1,8 @@
 # *The Times*, 7 September 1830, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 12 September 1830, p. 4](https://mhbeals.github.io/sap_html/Examiner/Examiner-12-September-1830-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 12 September 1830, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-12-September-1830-p-13)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-12-September-1830-p-4)*Examiner*, 12 September 1830, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-12-September-1830-p-13)*Examiner*, 12 September 1830, p. 13  
 
 
 # Citation: 

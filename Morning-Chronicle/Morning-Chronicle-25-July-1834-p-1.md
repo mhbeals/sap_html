@@ -1,21 +1,21 @@
 # *Morning Chronicle*, 25 July 1834, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 24 July 1834, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-24-July-1834-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 24 July 1834, p. 8](https://mhbeals.github.io/sap_html/The-Times/The-Times-24-July-1834-p-8)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-24-July-1834-p-7)*The Times*, 24 July 1834, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-24-July-1834-p-8)*The Times*, 24 July 1834, p. 8  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 25 July 1834, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-25-July-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 25 July 1834, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-25-July-1834-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-25-July-1834-p-1)*Hull Packet*, 25 July 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-25-July-1834-p-3)*The Times*, 25 July 1834, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 27 July 1834, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-27-July-1834-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 27 July 1834, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-27-July-1834-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 28 July 1834, p. 1](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-28-July-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 28 July 1834, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-28-July-1834-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 28 July 1834, p. 8](https://mhbeals.github.io/sap_html/The-Times/The-Times-28-July-1834-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 30 July 1834, p. 1](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-30-July-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 2 August 1834, p. 2](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-2-August-1834-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-27-July-1834-p-15)*Examiner*, 27 July 1834, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-27-July-1834-p-16)*Examiner*, 27 July 1834, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-28-July-1834-p-1)*Caledonian Mercury*, 28 July 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-28-July-1834-p-7)*The Times*, 28 July 1834, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-28-July-1834-p-8)*The Times*, 28 July 1834, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-30-July-1834-p-1)*Aberdeen Journal*, 30 July 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-2-August-1834-p-2)*Preston Chronicle*, 2 August 1834, p. 2  
 
 
 # Citation: 

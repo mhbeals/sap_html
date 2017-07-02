@@ -1,16 +1,16 @@
 # *The Times*, 4 August 1831, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 1 August 1831, p. 3](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-1-August-1831-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-1-August-1831-p-3)*Freeman's Journal*, 1 August 1831, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 6 August 1831, p. 27](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-6-August-1831-p-27)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 6 August 1831, p. 29](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-6-August-1831-p-29)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 6 August 1831, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-6-August-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 7 August 1831, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-7-August-1831-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 8 August 1831, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-8-August-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 9 August 1831, p. 1](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-9-August-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Poor Man's Guardian*, 13 August 1831, p. 6](https://mhbeals.github.io/sap_html/Poor-Man's-Guardian/Poor-Man's-Guardian-13-August-1831-p-6)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-6-August-1831-p-27)*Cobbet's Weekly Political Register*, 6 August 1831, p. 27  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-6-August-1831-p-29)*Cobbet's Weekly Political Register*, 6 August 1831, p. 29  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-6-August-1831-p-2)*Freeman's Journal*, 6 August 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-7-August-1831-p-13)*Examiner*, 7 August 1831, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-8-August-1831-p-2)*Freeman's Journal*, 8 August 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-9-August-1831-p-1)*Bristol Mercury*, 9 August 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Poor-Mans-Guardian/Poor-Mans-Guardian-13-August-1831-p-6)*Poor Man's Guardian*, 13 August 1831, p. 6  
 
 
 # Citation: 

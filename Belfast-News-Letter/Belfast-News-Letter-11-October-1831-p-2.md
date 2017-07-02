@@ -1,14 +1,14 @@
 # *Belfast News-Letter*, 11 October 1831, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 7 October 1831, p. 8](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-7-October-1831-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 8 October 1831, p. 3](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-8-October-1831-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-7-October-1831-p-8)*Liverpool Mercury*, 7 October 1831, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-8-October-1831-p-3)*Freeman's Journal*, 8 October 1831, p. 3  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 11 October 1831, p. 1](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-11-October-1831-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-11-October-1831-p-1)*Bristol Mercury*, 11 October 1831, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 15 October 1831, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-15-October-1831-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-15-October-1831-p-7)*The Times*, 15 October 1831, p. 7  
 
 
 # Citation: 

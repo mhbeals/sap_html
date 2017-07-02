@@ -1,9 +1,9 @@
 # *Liverpool Mercury*, 19 November 1830, p. 6  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 14 November 1830, p. 2](https://mhbeals.github.io/sap_html/Examiner/Examiner-14-November-1830-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 14 November 1830, p. 12](https://mhbeals.github.io/sap_html/Examiner/Examiner-14-November-1830-p-12)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 18 November 1830, p. 3](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-18-November-1830-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-14-November-1830-p-2)*Examiner*, 14 November 1830, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-14-November-1830-p-12)*Examiner*, 14 November 1830, p. 12  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-18-November-1830-p-3)*NorthWales Chronicle*, 18 November 1830, p. 3  
 
 
 # Citation: 

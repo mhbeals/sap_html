@@ -1,14 +1,14 @@
 # *Liverpool Mercury*, 17 October 1834, p. 5  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 3 October 1834, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-3-October-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 11 October 1834, p. 1](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-11-October-1834-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-3-October-1834-p-1)*Hull Packet*, 3 October 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-11-October-1834-p-1)*Manchester Times*, 11 October 1834, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 18 October 1834, p. 4](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-18-October-1834-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hampshire Portsmouth Telegraph*, 27 October 1834, p. 1](https://mhbeals.github.io/sap_html/Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-27-October-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 31 October 1834, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-31-October-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 1 November 1834, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-1-November-1834-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-18-October-1834-p-4)*Manchester Times*, 18 October 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-27-October-1834-p-1)*Hampshire Portsmouth Telegraph*, 27 October 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-31-October-1834-p-1)*Hull Packet*, 31 October 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-1-November-1834-p-2)*Newcastle Courant*, 1 November 1834, p. 2  
 
 
 # Citation: 

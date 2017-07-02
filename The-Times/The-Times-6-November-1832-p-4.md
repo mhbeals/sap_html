@@ -1,11 +1,11 @@
 # *The Times*, 6 November 1832, p. 4  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 6 November 1832, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-6-November-1832-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-6-November-1832-p-4)*Morning Chronicle*, 6 November 1832, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 11 November 1832, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-11-November-1832-p-11)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 11 November 1832, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-11-November-1832-p-13)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-11-November-1832-p-11)*Examiner*, 11 November 1832, p. 11  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-11-November-1832-p-13)*Examiner*, 11 November 1832, p. 13  
 
 
 # Citation: 

@@ -1,8 +1,8 @@
 # *Morning Chronicle*, 17 June 1828, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 21 June 1828, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-21-June-1828-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 22 June 1828, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-22-June-1828-p-14)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-21-June-1828-p-2)*Newcastle Courant*, 21 June 1828, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-22-June-1828-p-14)*Examiner*, 22 June 1828, p. 14  
 
 
 # Citation: 

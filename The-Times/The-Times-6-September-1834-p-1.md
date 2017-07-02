@@ -1,7 +1,7 @@
 # *The Times*, 6 September 1834, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 7 September 1834, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-7-September-1834-p-13)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-7-September-1834-p-13)*Examiner*, 7 September 1834, p. 13  
 
 
 # Citation: 

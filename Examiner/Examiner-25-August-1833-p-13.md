@@ -1,10 +1,10 @@
 # *Examiner*, 25 August 1833, p. 13  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 21 August 1833, p. 3](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-21-August-1833-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 22 August 1833, p. 3](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-22-August-1833-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 24 August 1833, p. 3](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-24-August-1833-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 24 August 1833, p. 8](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-24-August-1833-p-8)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-21-August-1833-p-3)*Morning Chronicle*, 21 August 1833, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-22-August-1833-p-3)*Morning Chronicle*, 22 August 1833, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-24-August-1833-p-3)*Bristol Mercury*, 24 August 1833, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-24-August-1833-p-8)*Leeds Mercury*, 24 August 1833, p. 8  
 
 
 # Citation: 

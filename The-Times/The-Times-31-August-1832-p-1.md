@@ -1,10 +1,10 @@
 # *The Times*, 31 August 1832, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 1 September 1832, p. 1](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-1-September-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 4 September 1832, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-4-September-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 8 September 1832, p. 1](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-8-September-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 8 September 1832, p. 1](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-8-September-1832-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-1-September-1832-p-1)*Bristol Mercury*, 1 September 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-4-September-1832-p-1)*Hull Packet*, 4 September 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-8-September-1832-p-1)*Bristol Mercury*, 8 September 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-8-September-1832-p-1)*Newcastle Courant*, 8 September 1832, p. 1  
 
 
 # Citation: 

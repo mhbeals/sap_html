@@ -1,15 +1,15 @@
 # *Morning Chronicle*, 1 May 1829, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 21 April 1829, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-21-April-1829-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-21-April-1829-p-1)*Hull Packet*, 21 April 1829, p. 1  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 1 May 1829, p. 1](https://mhbeals.github.io/sap_html/The-Times/The-Times-1-May-1829-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-1-May-1829-p-1)*The Times*, 1 May 1829, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 4 May 1829, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-4-May-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 9 May 1829, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-9-May-1829-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 12 May 1829, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-12-May-1829-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-4-May-1829-p-7)*The Times*, 4 May 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-9-May-1829-p-7)*The Times*, 9 May 1829, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-12-May-1829-p-7)*The Times*, 12 May 1829, p. 7  
 
 
 # Citation: 

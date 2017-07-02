@@ -1,32 +1,32 @@
 # *The Times*, 7 May 1833, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 16 April 1833, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-16-April-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 17 April 1833, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-17-April-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 18 April 1833, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-18-April-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 18 April 1833, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-18-April-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 19 April 1833, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-19-April-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 20 April 1833, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-20-April-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 23 April 1833, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-23-April-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 24 April 1833, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-24-April-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 27 April 1833, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-27-April-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 30 April 1833, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-30-April-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 4 May 1833, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-4-May-1833-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-16-April-1833-p-1)*Morning Chronicle*, 16 April 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-17-April-1833-p-2)*Morning Chronicle*, 17 April 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-18-April-1833-p-4)*Freeman's Journal*, 18 April 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-18-April-1833-p-1)*Morning Chronicle*, 18 April 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-19-April-1833-p-2)*Morning Chronicle*, 19 April 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-20-April-1833-p-2)*Morning Chronicle*, 20 April 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-23-April-1833-p-1)*Morning Chronicle*, 23 April 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-24-April-1833-p-1)*Morning Chronicle*, 24 April 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-27-April-1833-p-1)*Morning Chronicle*, 27 April 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-30-April-1833-p-1)*Morning Chronicle*, 30 April 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-4-May-1833-p-2)*Morning Chronicle*, 4 May 1833, p. 2  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 7 May 1833, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-7-May-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 7 May 1833, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-7-May-1833-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-7-May-1833-p-1)*Morning Chronicle*, 7 May 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-7-May-1833-p-2)*Morning Chronicle*, 7 May 1833, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 8 May 1833, p. 3](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-8-May-1833-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 9 May 1833, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-9-May-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 11 May 1833, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-11-May-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 11 May 1833, p. 4](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-11-May-1833-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hampshire Portsmouth Telegraph*, 13 May 1833, p. 2](https://mhbeals.github.io/sap_html/Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-13-May-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 14 May 1833, p. 2](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-14-May-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 14 May 1833, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-14-May-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 21 May 1833, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-21-May-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 24 May 1833, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-24-May-1833-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-8-May-1833-p-3)*Derby Mercury*, 8 May 1833, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-9-May-1833-p-4)*Freeman's Journal*, 9 May 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-11-May-1833-p-4)*Ipswich Journal*, 11 May 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-11-May-1833-p-4)*Manchester Times*, 11 May 1833, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-13-May-1833-p-2)*Hampshire Portsmouth Telegraph*, 13 May 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-14-May-1833-p-2)*NorthWales Chronicle*, 14 May 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-14-May-1833-p-1)*Morning Chronicle*, 14 May 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-21-May-1833-p-1)*Morning Chronicle*, 21 May 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-24-May-1833-p-2)*Morning Chronicle*, 24 May 1833, p. 2  
 
 
 # Citation: 

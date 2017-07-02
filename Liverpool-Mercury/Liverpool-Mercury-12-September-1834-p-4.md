@@ -1,9 +1,9 @@
 # *Liverpool Mercury*, 12 September 1834, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 23 August 1834, p. 1](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-23-August-1834-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 6 September 1834, p. 2](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-6-September-1834-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 6 September 1834, p. 1](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-6-September-1834-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-23-August-1834-p-1)*Newcastle Courant*, 23 August 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-6-September-1834-p-2)*Manchester Times*, 6 September 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-6-September-1834-p-1)*Newcastle Courant*, 6 September 1834, p. 1  
 
 
 # Citation: 

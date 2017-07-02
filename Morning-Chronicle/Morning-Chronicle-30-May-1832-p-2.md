@@ -1,10 +1,10 @@
 # *Morning Chronicle*, 30 May 1832, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 2 June 1832, p. 22](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-2-June-1832-p-22)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Poor Man's Guardian*, 2 June 1832, p. 5](https://mhbeals.github.io/sap_html/Poor-Man's-Guardian/Poor-Man's-Guardian-2-June-1832-p-5)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 3 June 1832, p. 1](https://mhbeals.github.io/sap_html/Examiner/Examiner-3-June-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 3 June 1832, p. 2](https://mhbeals.github.io/sap_html/Examiner/Examiner-3-June-1832-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-2-June-1832-p-22)*Cobbet's Weekly Political Register*, 2 June 1832, p. 22  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Poor-Mans-Guardian/Poor-Mans-Guardian-2-June-1832-p-5)*Poor Man's Guardian*, 2 June 1832, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-3-June-1832-p-1)*Examiner*, 3 June 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-3-June-1832-p-2)*Examiner*, 3 June 1832, p. 2  
 
 
 # Citation: 

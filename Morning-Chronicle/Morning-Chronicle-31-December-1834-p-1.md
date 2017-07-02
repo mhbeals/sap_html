@@ -1,17 +1,17 @@
 # *Morning Chronicle*, 31 December 1834, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 14 December 1834, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-14-December-1834-p-15)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-14-December-1834-p-15)*Examiner*, 14 December 1834, p. 15  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 31 December 1834, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-31-December-1834-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-31-December-1834-p-3)*The Times*, 31 December 1834, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 3 January 1835, p. 4](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-3-January-1835-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 4 January 1835, p. 12](https://mhbeals.github.io/sap_html/Examiner/Examiner-4-January-1835-p-12)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 4 January 1835, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-4-January-1835-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 11 January 1835, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-11-January-1835-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 11 January 1835, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-11-January-1835-p-16)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-3-January-1835-p-4)*Ipswich Journal*, 3 January 1835, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-4-January-1835-p-12)*Examiner*, 4 January 1835, p. 12  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-4-January-1835-p-16)*Examiner*, 4 January 1835, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-11-January-1835-p-15)*Examiner*, 11 January 1835, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-11-January-1835-p-16)*Examiner*, 11 January 1835, p. 16  
 
 
 # Citation: 

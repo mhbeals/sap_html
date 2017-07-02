@@ -1,13 +1,13 @@
 # *The Times*, 21 July 1828, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 2 July 1828, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-2-July-1828-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-2-July-1828-p-1)*Derby Mercury*, 2 July 1828, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 27 July 1828, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-27-July-1828-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 3 August 1828, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-3-August-1828-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 6 August 1828, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-6-August-1828-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 10 August 1828, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-10-August-1828-p-16)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-27-July-1828-p-16)*Examiner*, 27 July 1828, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-3-August-1828-p-16)*Examiner*, 3 August 1828, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-6-August-1828-p-1)*Derby Mercury*, 6 August 1828, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-10-August-1828-p-16)*Examiner*, 10 August 1828, p. 16  
 
 
 # Citation: 

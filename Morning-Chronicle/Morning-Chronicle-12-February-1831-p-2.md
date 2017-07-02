@@ -1,14 +1,14 @@
 # *Morning Chronicle*, 12 February 1831, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 9 February 1831, p. 1](https://mhbeals.github.io/sap_html/The-Times/The-Times-9-February-1831-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-9-February-1831-p-1)*The Times*, 9 February 1831, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 15 February 1831, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-15-February-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 15 February 1831, p. 3](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-15-February-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 15 February 1831, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-15-February-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 16 February 1831, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-16-February-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Caledonian Mercury*, 17 February 1831, p. 4](https://mhbeals.github.io/sap_html/Caledonian-Mercury/Caledonian-Mercury-17-February-1831-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-15-February-1831-p-2)*Freeman's Journal*, 15 February 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-15-February-1831-p-3)*Freeman's Journal*, 15 February 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-15-February-1831-p-2)*Bristol Mercury*, 15 February 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-16-February-1831-p-2)*Derby Mercury*, 16 February 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-17-February-1831-p-4)*Caledonian Mercury*, 17 February 1831, p. 4  
 
 
 # Citation: 

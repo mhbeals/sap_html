@@ -1,11 +1,11 @@
 # *Morning Chronicle*, 5 December 1832, p. 4  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 5 December 1832, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-5-December-1832-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-5-December-1832-p-4)*The Times*, 5 December 1832, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 8 December 1832, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-8-December-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 9 December 1832, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-9-December-1832-p-11)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-8-December-1832-p-2)*Bristol Mercury*, 8 December 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-9-December-1832-p-11)*Examiner*, 9 December 1832, p. 11  
 
 
 # Citation: 

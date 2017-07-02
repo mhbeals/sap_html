@@ -1,8 +1,8 @@
 # *Examiner*, 28 November 1830, p. 14  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 6 December 1830, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-6-December-1830-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 11 December 1830, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-11-December-1830-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-6-December-1830-p-7)*The Times*, 6 December 1830, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-11-December-1830-p-7)*The Times*, 11 December 1830, p. 7  
 
 
 # Citation: 

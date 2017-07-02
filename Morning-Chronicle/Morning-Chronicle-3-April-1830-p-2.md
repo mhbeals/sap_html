@@ -1,9 +1,9 @@
 # *Morning Chronicle*, 3 April 1830, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 4 April 1830, p. 8](https://mhbeals.github.io/sap_html/Examiner/Examiner-4-April-1830-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 6 April 1830, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-6-April-1830-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 6 April 1830, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-6-April-1830-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-4-April-1830-p-8)*Examiner*, 4 April 1830, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-6-April-1830-p-2)*Bristol Mercury*, 6 April 1830, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-6-April-1830-p-4)*Hull Packet*, 6 April 1830, p. 4  
 
 
 # Citation: 

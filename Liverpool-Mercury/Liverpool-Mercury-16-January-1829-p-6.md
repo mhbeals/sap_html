@@ -1,7 +1,7 @@
 # *Liverpool Mercury*, 16 January 1829, p. 6  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 31 January 1829, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-31-January-1829-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-31-January-1829-p-2)*Newcastle Courant*, 31 January 1829, p. 2  
 
 
 # Citation: 

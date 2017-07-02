@@ -1,13 +1,13 @@
 # *Belfast News-Letter*, 27 July 1832, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 26 July 1832, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-26-July-1832-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-26-July-1832-p-4)*Freeman's Journal*, 26 July 1832, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 28 July 1832, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-28-July-1832-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 28 July 1832, p. 4](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-28-July-1832-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 4 August 1832, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-4-August-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 12 August 1832, p. 9](https://mhbeals.github.io/sap_html/Examiner/Examiner-12-August-1832-p-9)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-28-July-1832-p-4)*Freeman's Journal*, 28 July 1832, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-28-July-1832-p-4)*Preston Chronicle*, 28 July 1832, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-4-August-1832-p-2)*Newcastle Courant*, 4 August 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-12-August-1832-p-9)*Examiner*, 12 August 1832, p. 9  
 
 
 # Citation: 

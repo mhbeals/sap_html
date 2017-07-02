@@ -1,8 +1,8 @@
 # *The Times*, 29 January 1830, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 30 January 1830, p. 3](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-30-January-1830-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 1 February 1830, p. 4](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-1-February-1830-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-30-January-1830-p-3)*Morning Chronicle*, 30 January 1830, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-1-February-1830-p-4)*Freeman's Journal*, 1 February 1830, p. 4  
 
 
 # Citation: 

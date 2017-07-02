@@ -1,7 +1,7 @@
 # *Bristol Mercury*, 17 August 1833, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 11 August 1833, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-11-August-1833-p-11)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-11-August-1833-p-11)*Examiner*, 11 August 1833, p. 11  
 
 
 # Citation: 

@@ -1,12 +1,12 @@
 # *Morning Chronicle*, 5 July 1833, p. 3  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 5 July 1833, p. 5](https://mhbeals.github.io/sap_html/The-Times/The-Times-5-July-1833-p-5)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-5-July-1833-p-5)*The Times*, 5 July 1833, p. 5  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 6 July 1833, p. 2](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-6-July-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 7 July 1833, p. 12](https://mhbeals.github.io/sap_html/Examiner/Examiner-7-July-1833-p-12)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 8 July 1833, p. 2](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-8-July-1833-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-6-July-1833-p-2)*Ipswich Journal*, 6 July 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-7-July-1833-p-12)*Examiner*, 7 July 1833, p. 12  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-8-July-1833-p-2)*Freeman's Journal*, 8 July 1833, p. 2  
 
 
 # Citation: 

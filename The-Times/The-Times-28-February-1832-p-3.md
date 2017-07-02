@@ -1,8 +1,8 @@
 # *The Times*, 28 February 1832, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 3 March 1832, p. 2](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-3-March-1832-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 4 March 1832, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-4-March-1832-p-13)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-3-March-1832-p-2)*Preston Chronicle*, 3 March 1832, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-4-March-1832-p-13)*Examiner*, 4 March 1832, p. 13  
 
 
 # Citation: 

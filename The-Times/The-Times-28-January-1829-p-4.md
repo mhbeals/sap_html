@@ -1,21 +1,21 @@
 # *The Times*, 28 January 1829, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 13 January 1829, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-13-January-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 17 January 1829, p. 1](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-17-January-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 20 January 1829, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-20-January-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 24 January 1829, p. 1](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-24-January-1829-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-13-January-1829-p-1)*Hull Packet*, 13 January 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-17-January-1829-p-1)*Leeds Mercury*, 17 January 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-20-January-1829-p-1)*Hull Packet*, 20 January 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-24-January-1829-p-1)*Leeds Mercury*, 24 January 1829, p. 1  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 28 January 1829, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-28-January-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 28 January 1829, p. 4](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-28-January-1829-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-28-January-1829-p-1)*Morning Chronicle*, 28 January 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-28-January-1829-p-4)*Morning Chronicle*, 28 January 1829, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 29 January 1829, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-29-January-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 30 January 1829, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-30-January-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 3 February 1829, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-3-February-1829-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 4 February 1829, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-4-February-1829-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 7 February 1829, p. 1](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-7-February-1829-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-29-January-1829-p-1)*Morning Chronicle*, 29 January 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-30-January-1829-p-1)*Morning Chronicle*, 30 January 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-3-February-1829-p-2)*Hull Packet*, 3 February 1829, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-4-February-1829-p-2)*Derby Mercury*, 4 February 1829, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-7-February-1829-p-1)*Leeds Mercury*, 7 February 1829, p. 1  
 
 
 # Citation: 

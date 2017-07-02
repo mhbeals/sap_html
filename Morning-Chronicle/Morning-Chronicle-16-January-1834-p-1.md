@@ -1,13 +1,13 @@
 # *Morning Chronicle*, 16 January 1834, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 29 December 1833, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-29-December-1833-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 12 January 1834, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-12-January-1834-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 12 January 1834, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-12-January-1834-p-16)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-29-December-1833-p-16)*Examiner*, 29 December 1833, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-12-January-1834-p-13)*Examiner*, 12 January 1834, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-12-January-1834-p-16)*Examiner*, 12 January 1834, p. 16  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 19 January 1834, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-19-January-1834-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 2 February 1834, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-2-February-1834-p-13)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-19-January-1834-p-13)*Examiner*, 19 January 1834, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-2-February-1834-p-13)*Examiner*, 2 February 1834, p. 13  
 
 
 # Citation: 

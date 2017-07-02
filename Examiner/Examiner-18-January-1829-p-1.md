@@ -1,7 +1,7 @@
 # *Examiner*, 18 January 1829, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 24 January 1829, p. 7](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-24-January-1829-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-24-January-1829-p-7)*Manchester Times*, 24 January 1829, p. 7  
 
 
 # Citation: 

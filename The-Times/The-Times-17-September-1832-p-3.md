@@ -1,10 +1,10 @@
 # *The Times*, 17 September 1832, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 18 September 1832, p. 1](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-18-September-1832-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 19 September 1832, p. 3](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-19-September-1832-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 20 September 1832, p. 3](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-20-September-1832-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 29 September 1832, p. 4](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-29-September-1832-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-18-September-1832-p-1)*Morning Chronicle*, 18 September 1832, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-19-September-1832-p-3)*Derby Mercury*, 19 September 1832, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-20-September-1832-p-3)*Freeman's Journal*, 20 September 1832, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-29-September-1832-p-4)*Manchester Times*, 29 September 1832, p. 4  
 
 
 # Citation: 

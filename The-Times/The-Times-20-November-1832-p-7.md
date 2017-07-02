@@ -1,8 +1,8 @@
 # *The Times*, 20 November 1832, p. 7  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 4 November 1832, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-4-November-1832-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 11 November 1832, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-11-November-1832-p-14)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-4-November-1832-p-15)*Examiner*, 4 November 1832, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-11-November-1832-p-14)*Examiner*, 11 November 1832, p. 14  
 
 
 # Citation: 

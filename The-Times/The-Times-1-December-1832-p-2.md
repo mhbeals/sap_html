@@ -1,10 +1,10 @@
 # *The Times*, 1 December 1832, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 18 November 1832, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-18-November-1832-p-16)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-18-November-1832-p-16)*Examiner*, 18 November 1832, p. 16  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 2 December 1832, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-2-December-1832-p-15)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-2-December-1832-p-15)*Examiner*, 2 December 1832, p. 15  
 
 
 # Citation: 

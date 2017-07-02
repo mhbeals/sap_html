@@ -1,10 +1,10 @@
 # *Morning Chronicle*, 7 February 1832, p. 2  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 7 February 1832, p. 1](https://mhbeals.github.io/sap_html/The-Times/The-Times-7-February-1832-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-7-February-1832-p-1)*The Times*, 7 February 1832, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 12 February 1832, p. 6](https://mhbeals.github.io/sap_html/Examiner/Examiner-12-February-1832-p-6)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-12-February-1832-p-6)*Examiner*, 12 February 1832, p. 6  
 
 
 # Citation: 

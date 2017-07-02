@@ -1,13 +1,13 @@
 # *Examiner*, 23 August 1829, p. 16  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 11 August 1829, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-11-August-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 22 August 1829, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-22-August-1829-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-11-August-1829-p-1)*Hull Packet*, 11 August 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-22-August-1829-p-2)*Newcastle Courant*, 22 August 1829, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 8 September 1829, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-8-September-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 9 September 1829, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-9-September-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 9 September 1829, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-9-September-1829-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-8-September-1829-p-1)*Hull Packet*, 8 September 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-9-September-1829-p-4)*Derby Mercury*, 9 September 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-9-September-1829-p-4)*The Times*, 9 September 1829, p. 4  
 
 
 # Citation: 

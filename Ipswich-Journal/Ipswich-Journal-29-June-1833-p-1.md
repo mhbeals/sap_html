@@ -1,13 +1,13 @@
 # *Ipswich Journal*, 29 June 1833, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 19 June 1833, p. 3](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-19-June-1833-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 22 June 1833, p. 1](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-22-June-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 22 June 1833, p. 1](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-22-June-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 28 June 1833, p. 5](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-28-June-1833-p-5)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-19-June-1833-p-3)*Derby Mercury*, 19 June 1833, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-22-June-1833-p-1)*Newcastle Courant*, 22 June 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-22-June-1833-p-1)*Preston Chronicle*, 22 June 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-28-June-1833-p-5)*Liverpool Mercury*, 28 June 1833, p. 5  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 6 July 1833, p. 2](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-6-July-1833-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-6-July-1833-p-2)*Manchester Times*, 6 July 1833, p. 2  
 
 
 # Citation: 

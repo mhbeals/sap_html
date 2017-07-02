@@ -1,8 +1,8 @@
 # *Morning Chronicle*, 5 November 1833, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 8 November 1833, p. 3](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-8-November-1833-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 9 November 1833, p. 21](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-9-November-1833-p-21)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-8-November-1833-p-3)*Freeman's Journal*, 8 November 1833, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-9-November-1833-p-21)*Cobbet's Weekly Political Register*, 9 November 1833, p. 21  
 
 
 # Citation: 

@@ -1,9 +1,9 @@
 # *Morning Chronicle*, 27 February 1833, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 1 March 1833, p. 8](https://mhbeals.github.io/sap_html/The-Times/The-Times-1-March-1833-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 3 March 1833, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-3-March-1833-p-14)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 5 March 1833, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-5-March-1833-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-1-March-1833-p-8)*The Times*, 1 March 1833, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-3-March-1833-p-14)*Examiner*, 3 March 1833, p. 14  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-5-March-1833-p-7)*The Times*, 5 March 1833, p. 7  
 
 
 # Citation: 

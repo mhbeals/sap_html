@@ -1,10 +1,10 @@
 # *Leeds Mercury*, 19 December 1829, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 13 December 1829, p. 9](https://mhbeals.github.io/sap_html/Examiner/Examiner-13-December-1829-p-9)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-13-December-1829-p-9)*Examiner*, 13 December 1829, p. 9  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 23 December 1829, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-23-December-1829-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-23-December-1829-p-1)*Derby Mercury*, 23 December 1829, p. 1  
 
 
 # Citation: 

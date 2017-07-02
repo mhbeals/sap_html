@@ -1,9 +1,9 @@
 # *Liverpool Mercury*, 28 February 1834, p. 6  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 1 March 1834, p. 3](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-1-March-1834-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 8 March 1834, p. 3](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-8-March-1834-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 20 March 1834, p. 1](https://mhbeals.github.io/sap_html/The-Times/The-Times-20-March-1834-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-1-March-1834-p-3)*Preston Chronicle*, 1 March 1834, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-8-March-1834-p-3)*Preston Chronicle*, 8 March 1834, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-20-March-1834-p-1)*The Times*, 20 March 1834, p. 1  
 
 
 # Citation: 

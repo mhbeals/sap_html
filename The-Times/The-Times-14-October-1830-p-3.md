@@ -1,11 +1,11 @@
 # *The Times*, 14 October 1830, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 17 October 1830, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-17-October-1830-p-11)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 17 October 1830, p. 12](https://mhbeals.github.io/sap_html/Examiner/Examiner-17-October-1830-p-12)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 19 October 1830, p. 1](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-19-October-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 19 October 1830, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-19-October-1830-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 20 October 1830, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-20-October-1830-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-17-October-1830-p-11)*Examiner*, 17 October 1830, p. 11  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-17-October-1830-p-12)*Examiner*, 17 October 1830, p. 12  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-19-October-1830-p-1)*Bristol Mercury*, 19 October 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-19-October-1830-p-2)*Hull Packet*, 19 October 1830, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-20-October-1830-p-4)*Derby Mercury*, 20 October 1830, p. 4  
 
 
 # Citation: 

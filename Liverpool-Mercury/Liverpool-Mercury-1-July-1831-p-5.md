@@ -1,16 +1,16 @@
 # *Liverpool Mercury*, 1 July 1831, p. 5  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 11 June 1831, p. 4](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-11-June-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 11 June 1831, p. 1](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-11-June-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 18 June 1831, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-18-June-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 21 June 1831, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-21-June-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 22 June 1831, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-22-June-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 25 June 1831, p. 1](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-25-June-1831-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 25 June 1831, p. 1](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-25-June-1831-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-11-June-1831-p-4)*Newcastle Courant*, 11 June 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-11-June-1831-p-1)*Preston Chronicle*, 11 June 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-18-June-1831-p-3)*Newcastle Courant*, 18 June 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-21-June-1831-p-1)*Hull Packet*, 21 June 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-22-June-1831-p-1)*Derby Mercury*, 22 June 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-25-June-1831-p-1)*Newcastle Courant*, 25 June 1831, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-25-June-1831-p-1)*Preston Chronicle*, 25 June 1831, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 16 July 1831, p. 1](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-16-July-1831-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-16-July-1831-p-1)*Preston Chronicle*, 16 July 1831, p. 1  
 
 
 # Citation: 

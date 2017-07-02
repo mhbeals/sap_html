@@ -1,13 +1,13 @@
 # *Morning Chronicle*, 9 January 1829, p. 1  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 9 January 1829, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-9-January-1829-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-9-January-1829-p-2)*The Times*, 9 January 1829, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 14 January 1829, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-14-January-1829-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 17 January 1829, p. 2](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-17-January-1829-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 21 January 1829, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-21-January-1829-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 24 January 1829, p. 3](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-24-January-1829-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-14-January-1829-p-2)*Derby Mercury*, 14 January 1829, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-17-January-1829-p-2)*Newcastle Courant*, 17 January 1829, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-21-January-1829-p-3)*The Times*, 21 January 1829, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-24-January-1829-p-3)*Leeds Mercury*, 24 January 1829, p. 3  
 
 
 # Citation: 

@@ -1,8 +1,8 @@
 # *Examiner*, 18 September 1831, p. 16  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 20 September 1831, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-20-September-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 27 September 1831, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-27-September-1831-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-20-September-1831-p-2)*Bristol Mercury*, 20 September 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-27-September-1831-p-2)*Bristol Mercury*, 27 September 1831, p. 2  
 
 
 # Citation: 

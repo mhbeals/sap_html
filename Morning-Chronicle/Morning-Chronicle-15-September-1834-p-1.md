@@ -1,9 +1,9 @@
 # *Morning Chronicle*, 15 September 1834, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 20 September 1834, p. 8](https://mhbeals.github.io/sap_html/The-Times/The-Times-20-September-1834-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 21 September 1834, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-21-September-1834-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 27 September 1834, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-27-September-1834-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-20-September-1834-p-8)*The Times*, 20 September 1834, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-21-September-1834-p-16)*Examiner*, 21 September 1834, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-27-September-1834-p-4)*The Times*, 27 September 1834, p. 4  
 
 
 # Citation: 

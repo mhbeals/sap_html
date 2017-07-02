@@ -1,7 +1,7 @@
 # *Manchester Times*, 8 September 1832, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 1 September 1832, p. 3](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-1-September-1832-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-1-September-1832-p-3)*Preston Chronicle*, 1 September 1832, p. 3  
 
 
 # Citation: 

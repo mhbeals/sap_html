@@ -1,7 +1,7 @@
 # *Caledonian Mercury*, 23 May 1829, p. 3  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 23 May 1829, p. 5](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-23-May-1829-p-5)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-23-May-1829-p-5)*Manchester Times*, 23 May 1829, p. 5  
 
 
 # Citation: 

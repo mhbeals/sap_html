@@ -1,9 +1,9 @@
 # *Morning Chronicle*, 27 June 1828, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 29 June 1828, p. 8](https://mhbeals.github.io/sap_html/Examiner/Examiner-29-June-1828-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 5 July 1828, p. 16](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-5-July-1828-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 5 July 1828, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-5-July-1828-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-29-June-1828-p-8)*Examiner*, 29 June 1828, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-5-July-1828-p-16)*Cobbet's Weekly Political Register*, 5 July 1828, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-5-July-1828-p-3)*Newcastle Courant*, 5 July 1828, p. 3  
 
 
 # Citation: 

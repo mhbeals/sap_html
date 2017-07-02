@@ -1,7 +1,7 @@
 # *The Times*, 9 December 1830, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 12 December 1830, p. 12](https://mhbeals.github.io/sap_html/Examiner/Examiner-12-December-1830-p-12)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-12-December-1830-p-12)*Examiner*, 12 December 1830, p. 12  
 
 
 # Citation: 

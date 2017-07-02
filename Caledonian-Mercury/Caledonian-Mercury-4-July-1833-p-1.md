@@ -1,12 +1,12 @@
 # *Caledonian Mercury*, 4 July 1833, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 24 June 1833, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-24-June-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 29 June 1833, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-29-June-1833-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 2 July 1833, p. 3](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-2-July-1833-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-24-June-1833-p-2)*The Times*, 24 June 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-29-June-1833-p-3)*The Times*, 29 June 1833, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-2-July-1833-p-3)*Belfast News-Letter*, 2 July 1833, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Belfast News-Letter*, 19 July 1833, p. 3](https://mhbeals.github.io/sap_html/Belfast-News-Letter/Belfast-News-Letter-19-July-1833-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-19-July-1833-p-3)*Belfast News-Letter*, 19 July 1833, p. 3  
 
 
 # Citation: 

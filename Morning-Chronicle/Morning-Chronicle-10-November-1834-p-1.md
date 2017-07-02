@@ -1,18 +1,18 @@
 # *Morning Chronicle*, 10 November 1834, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 9 November 1834, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-9-November-1834-p-16)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-9-November-1834-p-16)*Examiner*, 9 November 1834, p. 16  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 10 November 1834, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-10-November-1834-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-10-November-1834-p-7)*The Times*, 10 November 1834, p. 7  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Liverpool Mercury*, 14 November 1834, p. 5](https://mhbeals.github.io/sap_html/Liverpool-Mercury/Liverpool-Mercury-14-November-1834-p-5)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 16 November 1834, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-16-November-1834-p-14)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 16 November 1834, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-16-November-1834-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 23 November 1834, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-23-November-1834-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 23 November 1834, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-23-November-1834-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 30 November 1834, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-30-November-1834-p-13)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-14-November-1834-p-5)*Liverpool Mercury*, 14 November 1834, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-16-November-1834-p-14)*Examiner*, 16 November 1834, p. 14  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-16-November-1834-p-16)*Examiner*, 16 November 1834, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-23-November-1834-p-13)*Examiner*, 23 November 1834, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-23-November-1834-p-15)*Examiner*, 23 November 1834, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-30-November-1834-p-13)*Examiner*, 30 November 1834, p. 13  
 
 
 # Citation: 

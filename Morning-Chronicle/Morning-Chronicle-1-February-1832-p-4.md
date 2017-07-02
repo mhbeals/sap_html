@@ -1,14 +1,14 @@
 # *Morning Chronicle*, 1 February 1832, p. 4  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 1 February 1832, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-1-February-1832-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-1-February-1832-p-3)*The Times*, 1 February 1832, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 5 February 1832, p. 9](https://mhbeals.github.io/sap_html/Examiner/Examiner-5-February-1832-p-9)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 5 February 1832, p. 10](https://mhbeals.github.io/sap_html/Examiner/Examiner-5-February-1832-p-10)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 7 February 1832, p. 4](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-7-February-1832-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 12 February 1832, p. 12](https://mhbeals.github.io/sap_html/Examiner/Examiner-12-February-1832-p-12)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 12 February 1832, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-12-February-1832-p-13)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-5-February-1832-p-9)*Examiner*, 5 February 1832, p. 9  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-5-February-1832-p-10)*Examiner*, 5 February 1832, p. 10  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-7-February-1832-p-4)*Hull Packet*, 7 February 1832, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-12-February-1832-p-12)*Examiner*, 12 February 1832, p. 12  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-12-February-1832-p-13)*Examiner*, 12 February 1832, p. 13  
 
 
 # Citation: 

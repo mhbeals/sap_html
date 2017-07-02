@@ -1,16 +1,16 @@
 # *Liverpool Mercury*, 25 November 1831, p. 5  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 13 November 1831, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-13-November-1831-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 20 November 1831, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-20-November-1831-p-15)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-13-November-1831-p-16)*Examiner*, 13 November 1831, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-20-November-1831-p-15)*Examiner*, 20 November 1831, p. 15  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 26 November 1831, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-26-November-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 27 November 1831, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-27-November-1831-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 3 December 1831, p. 2](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-3-December-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 3 December 1831, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-3-December-1831-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 4 December 1831, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-4-December-1831-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 10 December 1831, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-10-December-1831-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-26-November-1831-p-3)*Newcastle Courant*, 26 November 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-27-November-1831-p-15)*Examiner*, 27 November 1831, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-3-December-1831-p-2)*Preston Chronicle*, 3 December 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-3-December-1831-p-3)*Newcastle Courant*, 3 December 1831, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-4-December-1831-p-16)*Examiner*, 4 December 1831, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-10-December-1831-p-3)*Newcastle Courant*, 10 December 1831, p. 3  
 
 
 # Citation: 

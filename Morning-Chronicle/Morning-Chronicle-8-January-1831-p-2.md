@@ -1,8 +1,8 @@
 # *Morning Chronicle*, 8 January 1831, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 11 January 1831, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-11-January-1831-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Cobbet's Weekly Political Register*, 15 January 1831, p. 14](https://mhbeals.github.io/sap_html/Cobbet's-Weekly-Political-Register/Cobbet's-Weekly-Political-Register-15-January-1831-p-14)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-11-January-1831-p-2)*Bristol Mercury*, 11 January 1831, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-15-January-1831-p-14)*Cobbet's Weekly Political Register*, 15 January 1831, p. 14  
 
 
 # Citation: 

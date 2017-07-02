@@ -1,7 +1,7 @@
 # *Morning Chronicle*, 10 February 1831, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 1 February 1831, p. 8](https://mhbeals.github.io/sap_html/The-Times/The-Times-1-February-1831-p-8)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-1-February-1831-p-8)*The Times*, 1 February 1831, p. 8  
 
 
 # Citation: 

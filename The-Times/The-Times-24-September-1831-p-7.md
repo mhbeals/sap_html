@@ -1,9 +1,9 @@
 # *The Times*, 24 September 1831, p. 7  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 25 September 1831, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-25-September-1831-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 25 September 1831, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-25-September-1831-p-14)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 2 October 1831, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-2-October-1831-p-14)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-25-September-1831-p-13)*Examiner*, 25 September 1831, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-25-September-1831-p-14)*Examiner*, 25 September 1831, p. 14  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-2-October-1831-p-14)*Examiner*, 2 October 1831, p. 14  
 
 
 # Citation: 

@@ -1,10 +1,10 @@
 # *Manchester Times*, 8 February 1834, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 2 February 1834, p. 7](https://mhbeals.github.io/sap_html/Examiner/Examiner-2-February-1834-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-2-February-1834-p-7)*Examiner*, 2 February 1834, p. 7  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 8 February 1834, p. 1](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-8-February-1834-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-8-February-1834-p-1)*Ipswich Journal*, 8 February 1834, p. 1  
 
 
 # Citation: 

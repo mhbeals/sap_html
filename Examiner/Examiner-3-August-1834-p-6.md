@@ -1,16 +1,16 @@
 # *Examiner*, 3 August 1834, p. 6  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 29 July 1834, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-29-July-1834-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 29 July 1834, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-29-July-1834-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 30 July 1834, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-30-July-1834-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 1 August 1834, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-1-August-1834-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 2 August 1834, p. 6](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-2-August-1834-p-6)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 2 August 1834, p. 4](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-2-August-1834-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-29-July-1834-p-3)*The Times*, 29 July 1834, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-29-July-1834-p-4)*The Times*, 29 July 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-30-July-1834-p-3)*The Times*, 30 July 1834, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-1-August-1834-p-3)*The Times*, 1 August 1834, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-2-August-1834-p-6)*Leeds Mercury*, 2 August 1834, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-2-August-1834-p-4)*Manchester Times*, 2 August 1834, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 6 August 1834, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-6-August-1834-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 9 August 1834, p. 4](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-9-August-1834-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-6-August-1834-p-4)*Derby Mercury*, 6 August 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-9-August-1834-p-4)*Manchester Times*, 9 August 1834, p. 4  
 
 
 # Citation: 

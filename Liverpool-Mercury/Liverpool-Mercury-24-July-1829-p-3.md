@@ -1,8 +1,8 @@
 # *Liverpool Mercury*, 24 July 1829, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 25 July 1829, p. 1](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-25-July-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 29 July 1829, p. 3](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-29-July-1829-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-25-July-1829-p-1)*Manchester Times*, 25 July 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-29-July-1829-p-3)*Derby Mercury*, 29 July 1829, p. 3  
 
 
 # Citation: 

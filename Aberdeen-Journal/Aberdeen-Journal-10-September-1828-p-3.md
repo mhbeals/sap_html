@@ -1,8 +1,8 @@
 # *Aberdeen Journal*, 10 September 1828, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*NorthWales Chronicle*, 25 September 1828, p. 1](https://mhbeals.github.io/sap_html/NorthWales-Chronicle/NorthWales-Chronicle-25-September-1828-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 1 October 1828, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-1-October-1828-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-25-September-1828-p-1)*NorthWales Chronicle*, 25 September 1828, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-1-October-1828-p-1)*Derby Mercury*, 1 October 1828, p. 1  
 
 
 # Citation: 

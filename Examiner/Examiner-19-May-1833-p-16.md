@@ -1,15 +1,15 @@
 # *Examiner*, 19 May 1833, p. 16  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 3 May 1833, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-3-May-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 4 May 1833, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-4-May-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 14 May 1833, p. 1](https://mhbeals.github.io/sap_html/The-Times/The-Times-14-May-1833-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-3-May-1833-p-1)*Hull Packet*, 3 May 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-4-May-1833-p-2)*Bristol Mercury*, 4 May 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-14-May-1833-p-1)*The Times*, 14 May 1833, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 30 May 1833, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-30-May-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 1 June 1833, p. 2](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-1-June-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 7 June 1833, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-7-June-1833-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Freeman's Journal*, 8 June 1833, p. 1](https://mhbeals.github.io/sap_html/Freeman's-Journal/Freeman's-Journal-8-June-1833-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-30-May-1833-p-1)*Freeman's Journal*, 30 May 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-1-June-1833-p-2)*Bristol Mercury*, 1 June 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-7-June-1833-p-1)*Hull Packet*, 7 June 1833, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-8-June-1833-p-1)*Freeman's Journal*, 8 June 1833, p. 1  
 
 
 # Citation: 

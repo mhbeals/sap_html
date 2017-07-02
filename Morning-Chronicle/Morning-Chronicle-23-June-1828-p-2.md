@@ -1,13 +1,13 @@
 # *Morning Chronicle*, 23 June 1828, p. 2  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 23 June 1828, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-23-June-1828-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 23 June 1828, p. 6](https://mhbeals.github.io/sap_html/The-Times/The-Times-23-June-1828-p-6)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-23-June-1828-p-4)*The Times*, 23 June 1828, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-23-June-1828-p-6)*The Times*, 23 June 1828, p. 6  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 26 June 1828, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-26-June-1828-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 29 June 1828, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-29-June-1828-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 30 June 1828, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-30-June-1828-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-26-June-1828-p-4)*The Times*, 26 June 1828, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-29-June-1828-p-15)*Examiner*, 29 June 1828, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-30-June-1828-p-4)*The Times*, 30 June 1828, p. 4  
 
 
 # Citation: 

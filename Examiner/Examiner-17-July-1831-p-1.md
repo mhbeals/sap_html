@@ -1,7 +1,7 @@
 # *Examiner*, 17 July 1831, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 23 July 1831, p. 6](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-23-July-1831-p-6)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-23-July-1831-p-6)*Manchester Times*, 23 July 1831, p. 6  
 
 
 # Citation: 

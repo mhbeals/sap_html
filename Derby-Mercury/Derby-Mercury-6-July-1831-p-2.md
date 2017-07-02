@@ -1,9 +1,9 @@
 # *Derby Mercury*, 6 July 1831, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 9 July 1831, p. 4](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-9-July-1831-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Aberdeen Journal*, 13 July 1831, p. 6](https://mhbeals.github.io/sap_html/Aberdeen-Journal/Aberdeen-Journal-13-July-1831-p-6)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Preston Chronicle*, 16 July 1831, p. 1](https://mhbeals.github.io/sap_html/Preston-Chronicle/Preston-Chronicle-16-July-1831-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-9-July-1831-p-4)*Newcastle Courant*, 9 July 1831, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-13-July-1831-p-6)*Aberdeen Journal*, 13 July 1831, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-16-July-1831-p-1)*Preston Chronicle*, 16 July 1831, p. 1  
 
 
 # Citation: 

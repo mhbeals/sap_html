@@ -1,10 +1,10 @@
 # *Examiner*, 16 November 1834, p. 13  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 15 November 1834, p. 4](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-15-November-1834-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-15-November-1834-p-4)*Manchester Times*, 15 November 1834, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 22 November 1834, p. 3](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-22-November-1834-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-22-November-1834-p-3)*Newcastle Courant*, 22 November 1834, p. 3  
 
 
 # Citation: 

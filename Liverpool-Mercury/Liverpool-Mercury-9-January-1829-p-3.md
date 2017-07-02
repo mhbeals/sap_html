@@ -1,8 +1,8 @@
 # *Liverpool Mercury*, 9 January 1829, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 10 January 1829, p. 8](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-10-January-1829-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 30 January 1829, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-30-January-1829-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-10-January-1829-p-8)*Manchester Times*, 10 January 1829, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-30-January-1829-p-4)*The Times*, 30 January 1829, p. 4  
 
 
 # Citation: 

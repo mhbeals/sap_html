@@ -1,7 +1,7 @@
 # *The Times*, 19 July 1832, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 21 July 1832, p. 8](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-21-July-1832-p-8)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-21-July-1832-p-8)*Leeds Mercury*, 21 July 1832, p. 8  
 
 
 # Citation: 

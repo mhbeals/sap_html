@@ -1,13 +1,13 @@
 # *Morning Chronicle*, 8 April 1830, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 4 April 1830, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-4-April-1830-p-14)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-4-April-1830-p-14)*Examiner*, 4 April 1830, p. 14  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 11 April 1830, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-11-April-1830-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 11 April 1830, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-11-April-1830-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 15 April 1830, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-15-April-1830-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 18 April 1830, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-18-April-1830-p-14)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-11-April-1830-p-15)*Examiner*, 11 April 1830, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-11-April-1830-p-16)*Examiner*, 11 April 1830, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-15-April-1830-p-7)*The Times*, 15 April 1830, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-18-April-1830-p-14)*Examiner*, 18 April 1830, p. 14  
 
 
 # Citation: 

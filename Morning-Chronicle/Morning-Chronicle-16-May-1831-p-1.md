@@ -1,11 +1,11 @@
 # *Morning Chronicle*, 16 May 1831, p. 1  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 16 May 1831, p. 5](https://mhbeals.github.io/sap_html/The-Times/The-Times-16-May-1831-p-5)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-16-May-1831-p-5)*The Times*, 16 May 1831, p. 5  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 21 May 1831, p. 5](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-21-May-1831-p-5)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 4 June 1831, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-4-June-1831-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-21-May-1831-p-5)*Manchester Times*, 21 May 1831, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-4-June-1831-p-7)*The Times*, 4 June 1831, p. 7  
 
 
 # Citation: 

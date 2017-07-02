@@ -1,7 +1,7 @@
 # *The Times*, 9 May 1833, p. 8  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 5 May 1833, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-5-May-1833-p-16)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-5-May-1833-p-16)*Examiner*, 5 May 1833, p. 16  
 
 
 # Citation: 

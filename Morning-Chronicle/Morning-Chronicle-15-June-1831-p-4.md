@@ -1,12 +1,12 @@
 # *Morning Chronicle*, 15 June 1831, p. 4  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 15 June 1831, p. 5](https://mhbeals.github.io/sap_html/The-Times/The-Times-15-June-1831-p-5)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 15 June 1831, p. 6](https://mhbeals.github.io/sap_html/The-Times/The-Times-15-June-1831-p-6)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-15-June-1831-p-5)*The Times*, 15 June 1831, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-15-June-1831-p-6)*The Times*, 15 June 1831, p. 6  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 19 June 1831, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-19-June-1831-p-11)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 19 June 1831, p. 12](https://mhbeals.github.io/sap_html/Examiner/Examiner-19-June-1831-p-12)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-19-June-1831-p-11)*Examiner*, 19 June 1831, p. 11  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-19-June-1831-p-12)*Examiner*, 19 June 1831, p. 12  
 
 
 # Citation: 

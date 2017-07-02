@@ -1,11 +1,11 @@
 # *The Times*, 27 February 1830, p. 3  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 27 February 1830, p. 3](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-27-February-1830-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-27-February-1830-p-3)*Ipswich Journal*, 27 February 1830, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Morning Chronicle*, 1 March 1830, p. 2](https://mhbeals.github.io/sap_html/Morning-Chronicle/Morning-Chronicle-1-March-1830-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 10 March 1830, p. 4](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-10-March-1830-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-1-March-1830-p-2)*Morning Chronicle*, 1 March 1830, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-10-March-1830-p-4)*Derby Mercury*, 10 March 1830, p. 4  
 
 
 # Citation: 

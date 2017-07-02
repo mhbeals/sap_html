@@ -1,7 +1,7 @@
 # *Examiner*, 13 July 1834, p. 14  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 19 July 1834, p. 2](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-19-July-1834-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-19-July-1834-p-2)*Manchester Times*, 19 July 1834, p. 2  
 
 
 # Citation: 

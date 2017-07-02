@@ -1,7 +1,7 @@
 # *Liverpool Mercury*, 22 May 1829, p. 8  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 23 May 1829, p. 8](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-23-May-1829-p-8)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-23-May-1829-p-8)*Manchester Times*, 23 May 1829, p. 8  
 
 
 # Citation: 

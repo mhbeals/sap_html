@@ -1,8 +1,8 @@
 # *Caledonian Mercury*, 18 February 1830, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 11 February 1830, p. 5](https://mhbeals.github.io/sap_html/The-Times/The-Times-11-February-1830-p-5)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 14 February 1830, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-14-February-1830-p-11)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-11-February-1830-p-5)*The Times*, 11 February 1830, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-14-February-1830-p-11)*Examiner*, 14 February 1830, p. 11  
 
 
 # Citation: 

@@ -1,11 +1,11 @@
 # *The Times*, 13 January 1829, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 28 December 1828, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-28-December-1828-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 11 January 1829, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-11-January-1829-p-15)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-28-December-1828-p-15)*Examiner*, 28 December 1828, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-11-January-1829-p-15)*Examiner*, 11 January 1829, p. 15  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 18 January 1829, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-18-January-1829-p-16)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-18-January-1829-p-16)*Examiner*, 18 January 1829, p. 16  
 
 
 # Citation: 

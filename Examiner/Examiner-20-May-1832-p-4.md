@@ -1,7 +1,7 @@
 # *Examiner*, 20 May 1832, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 26 May 1832, p. 4](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-26-May-1832-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-26-May-1832-p-4)*Manchester Times*, 26 May 1832, p. 4  
 
 
 # Citation: 

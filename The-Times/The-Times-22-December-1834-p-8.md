@@ -1,8 +1,8 @@
 # *The Times*, 22 December 1834, p. 8  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 28 December 1834, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-28-December-1834-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 11 January 1835, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-11-January-1835-p-15)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-28-December-1834-p-13)*Examiner*, 28 December 1834, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-11-January-1835-p-15)*Examiner*, 11 January 1835, p. 15  
 
 
 # Citation: 

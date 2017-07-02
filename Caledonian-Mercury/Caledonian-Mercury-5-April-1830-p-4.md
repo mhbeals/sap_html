@@ -1,7 +1,7 @@
 # *Caledonian Mercury*, 5 April 1830, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 28 March 1830, p. 9](https://mhbeals.github.io/sap_html/Examiner/Examiner-28-March-1830-p-9)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-28-March-1830-p-9)*Examiner*, 28 March 1830, p. 9  
 
 
 # Citation: 

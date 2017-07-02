@@ -1,7 +1,7 @@
 # *Derby Mercury*, 25 June 1828, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Ipswich Journal*, 28 June 1828, p. 2](https://mhbeals.github.io/sap_html/Ipswich-Journal/Ipswich-Journal-28-June-1828-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-28-June-1828-p-2)*Ipswich Journal*, 28 June 1828, p. 2  
 
 
 # Citation: 

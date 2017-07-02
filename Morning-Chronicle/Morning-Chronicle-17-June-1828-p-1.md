@@ -1,9 +1,9 @@
 # *Morning Chronicle*, 17 June 1828, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 22 June 1828, p. 7](https://mhbeals.github.io/sap_html/Examiner/Examiner-22-June-1828-p-7)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 24 June 1828, p. 1](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-24-June-1828-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 24 June 1828, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-24-June-1828-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-22-June-1828-p-7)*Examiner*, 22 June 1828, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-24-June-1828-p-1)*Bristol Mercury*, 24 June 1828, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-24-June-1828-p-1)*Hull Packet*, 24 June 1828, p. 1  
 
 
 # Citation: 

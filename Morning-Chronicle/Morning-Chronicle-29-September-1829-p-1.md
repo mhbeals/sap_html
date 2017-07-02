@@ -1,11 +1,11 @@
 # *Morning Chronicle*, 29 September 1829, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 1 October 1829, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-1-October-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 2 October 1829, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-2-October-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 4 October 1829, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-4-October-1829-p-11)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 5 October 1829, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-5-October-1829-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 10 October 1829, p. 7](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-10-October-1829-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-1-October-1829-p-4)*The Times*, 1 October 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-2-October-1829-p-4)*The Times*, 2 October 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-4-October-1829-p-11)*Examiner*, 4 October 1829, p. 11  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-5-October-1829-p-4)*The Times*, 5 October 1829, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-10-October-1829-p-7)*Manchester Times*, 10 October 1829, p. 7  
 
 
 # Citation: 

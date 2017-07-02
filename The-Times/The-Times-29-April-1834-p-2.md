@@ -1,7 +1,7 @@
 # *The Times*, 29 April 1834, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Manchester Times*, 3 May 1834, p. 2](https://mhbeals.github.io/sap_html/Manchester-Times/Manchester-Times-3-May-1834-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-3-May-1834-p-2)*Manchester Times*, 3 May 1834, p. 2  
 
 
 # Citation: 

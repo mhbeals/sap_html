@@ -1,8 +1,8 @@
 # *The Times*, 29 July 1830, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 31 July 1830, p. 1](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-31-July-1830-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 3 August 1830, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-3-August-1830-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-31-July-1830-p-1)*Newcastle Courant*, 31 July 1830, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-3-August-1830-p-1)*Hull Packet*, 3 August 1830, p. 1  
 
 
 # Citation: 

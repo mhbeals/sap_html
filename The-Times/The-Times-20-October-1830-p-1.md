@@ -1,8 +1,8 @@
 # *The Times*, 20 October 1830, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 24 October 1830, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-24-October-1830-p-14)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 27 October 1830, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-27-October-1830-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-24-October-1830-p-14)*Examiner*, 24 October 1830, p. 14  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-27-October-1830-p-2)*Derby Mercury*, 27 October 1830, p. 2  
 
 
 # Citation: 

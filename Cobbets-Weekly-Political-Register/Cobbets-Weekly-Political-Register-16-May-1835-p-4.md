@@ -1,8 +1,8 @@
 # *Cobbet's Weekly Political Register*, 16 May 1835, p. 4  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Poor-Man's-Guardian/Poor-Man's-Guardian-23-May-1835-p-5)*Poor Man's Guardian*, 23 May 1835, p. 5  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Poor-Man's-Guardian/Poor-Man's-Guardian-23-May-1835-p-6)*Poor Man's Guardian*, 23 May 1835, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Poor-Mans-Guardian/Poor-Mans-Guardian-23-May-1835-p-5)*Poor Man's Guardian*, 23 May 1835, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Poor-Mans-Guardian/Poor-Mans-Guardian-23-May-1835-p-6)*Poor Man's Guardian*, 23 May 1835, p. 6  
 
 
 # Citation: 

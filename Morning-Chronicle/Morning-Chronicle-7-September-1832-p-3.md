@@ -1,8 +1,8 @@
 # *Morning Chronicle*, 7 September 1832, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 11 September 1832, p. 5](https://mhbeals.github.io/sap_html/The-Times/The-Times-11-September-1832-p-5)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 12 September 1832, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-12-September-1832-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-11-September-1832-p-5)*The Times*, 11 September 1832, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-12-September-1832-p-2)*The Times*, 12 September 1832, p. 2  
 
 
 # Citation: 

@@ -1,16 +1,16 @@
 # *Morning Chronicle*, 18 November 1829, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 14 November 1829, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-14-November-1829-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 17 November 1829, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-17-November-1829-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-14-November-1829-p-3)*The Times*, 14 November 1829, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-17-November-1829-p-2)*The Times*, 17 November 1829, p. 2  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 18 November 1829, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-18-November-1829-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-18-November-1829-p-2)*The Times*, 18 November 1829, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 22 November 1829, p. 9](https://mhbeals.github.io/sap_html/Examiner/Examiner-22-November-1829-p-9)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 22 November 1829, p. 12](https://mhbeals.github.io/sap_html/Examiner/Examiner-22-November-1829-p-12)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 24 November 1829, p. 3](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-24-November-1829-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-22-November-1829-p-9)*Examiner*, 22 November 1829, p. 9  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-22-November-1829-p-12)*Examiner*, 22 November 1829, p. 12  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-24-November-1829-p-3)*Hull Packet*, 24 November 1829, p. 3  
 
 
 # Citation: 

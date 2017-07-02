@@ -1,11 +1,11 @@
 # *The Times*, 26 November 1833, p. 7  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 10 November 1833, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-10-November-1833-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 10 November 1833, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-10-November-1833-p-16)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-10-November-1833-p-13)*Examiner*, 10 November 1833, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-10-November-1833-p-16)*Examiner*, 10 November 1833, p. 16  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 1 December 1833, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-1-December-1833-p-15)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-1-December-1833-p-15)*Examiner*, 1 December 1833, p. 15  
 
 
 # Citation: 

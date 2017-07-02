@@ -1,11 +1,11 @@
 # *Morning Chronicle*, 10 June 1830, p. 4  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 5 June 1830, p. 8](https://mhbeals.github.io/sap_html/The-Times/The-Times-5-June-1830-p-8)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-5-June-1830-p-8)*The Times*, 5 June 1830, p. 8  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 11 June 1830, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-11-June-1830-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 15 June 1830, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-15-June-1830-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-11-June-1830-p-4)*The Times*, 11 June 1830, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-15-June-1830-p-4)*The Times*, 15 June 1830, p. 4  
 
 
 # Citation: 

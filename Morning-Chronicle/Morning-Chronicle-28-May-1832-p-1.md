@@ -1,14 +1,14 @@
 # *Morning Chronicle*, 28 May 1832, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 26 May 1832, p. 8](https://mhbeals.github.io/sap_html/The-Times/The-Times-26-May-1832-p-8)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 27 May 1832, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-27-May-1832-p-15)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-26-May-1832-p-8)*The Times*, 26 May 1832, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-27-May-1832-p-15)*Examiner*, 27 May 1832, p. 15  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 28 May 1832, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-28-May-1832-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-28-May-1832-p-4)*The Times*, 28 May 1832, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 31 May 1832, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-31-May-1832-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-31-May-1832-p-7)*The Times*, 31 May 1832, p. 7  
 
 
 # Citation: 

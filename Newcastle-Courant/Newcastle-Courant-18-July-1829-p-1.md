@@ -1,18 +1,18 @@
 # *Newcastle Courant*, 18 July 1829, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 1 July 1829, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-1-July-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 1 July 1829, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-1-July-1829-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 1 July 1829, p. 3](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-1-July-1829-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 8 July 1829, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-8-July-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 15 July 1829, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-15-July-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 15 July 1829, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-15-July-1829-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-1-July-1829-p-1)*Derby Mercury*, 1 July 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-1-July-1829-p-2)*Derby Mercury*, 1 July 1829, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-1-July-1829-p-3)*Derby Mercury*, 1 July 1829, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-8-July-1829-p-1)*Derby Mercury*, 8 July 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-15-July-1829-p-1)*Derby Mercury*, 15 July 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-15-July-1829-p-2)*Derby Mercury*, 15 July 1829, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 22 July 1829, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-22-July-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 29 July 1829, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-29-July-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 5 August 1829, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-5-August-1829-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 5 August 1829, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-5-August-1829-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-22-July-1829-p-1)*Derby Mercury*, 22 July 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-29-July-1829-p-1)*Derby Mercury*, 29 July 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-5-August-1829-p-1)*Derby Mercury*, 5 August 1829, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-5-August-1829-p-2)*Derby Mercury*, 5 August 1829, p. 2  
 
 
 # Citation: 

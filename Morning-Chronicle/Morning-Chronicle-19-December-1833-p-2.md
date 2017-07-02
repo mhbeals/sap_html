@@ -1,8 +1,8 @@
 # *Morning Chronicle*, 19 December 1833, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 22 December 1833, p. 2](https://mhbeals.github.io/sap_html/Examiner/Examiner-22-December-1833-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 22 December 1833, p. 8](https://mhbeals.github.io/sap_html/Examiner/Examiner-22-December-1833-p-8)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-22-December-1833-p-2)*Examiner*, 22 December 1833, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-22-December-1833-p-8)*Examiner*, 22 December 1833, p. 8  
 
 
 # Citation: 

@@ -1,7 +1,7 @@
 # *Ipswich Journal*, 12 July 1828, p. 3  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 8 July 1828, p. 1](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-8-July-1828-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-8-July-1828-p-1)*Hull Packet*, 8 July 1828, p. 1  
 
 
 # Citation: 

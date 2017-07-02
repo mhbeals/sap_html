@@ -1,7 +1,7 @@
 # *Hampshire Portsmouth Telegraph*, 17 October 1831, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 19 October 1831, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-19-October-1831-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-19-October-1831-p-1)*Derby Mercury*, 19 October 1831, p. 1  
 
 
 # Citation: 

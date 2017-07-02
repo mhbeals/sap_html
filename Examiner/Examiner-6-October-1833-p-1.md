@@ -1,7 +1,7 @@
 # *Examiner*, 6 October 1833, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 19 October 1833, p. 7](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-19-October-1833-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-19-October-1833-p-7)*Leeds Mercury*, 19 October 1833, p. 7  
 
 
 # Citation: 

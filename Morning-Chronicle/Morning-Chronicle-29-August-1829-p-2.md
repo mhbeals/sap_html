@@ -1,10 +1,10 @@
 # *Morning Chronicle*, 29 August 1829, p. 2  
   
 ### Content from this page simeltaneously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 29 August 1829, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-29-August-1829-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-29-August-1829-p-2)*The Times*, 29 August 1829, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 2 September 1829, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-2-September-1829-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-2-September-1829-p-2)*Derby Mercury*, 2 September 1829, p. 2  
 
 
 # Citation: 
