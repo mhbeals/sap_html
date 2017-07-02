@@ -1,9 +1,9 @@
 # *Liverpool Mercury*, 3 March 1826, p. 6  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Leeds Mercury*, 4 March 1826, p. 3](https://mhbeals.github.io/sap_html/Leeds-Mercury/Leeds-Mercury-4-March-1826-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 6 March 1826, p. 4](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-6-March-1826-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 19 March 1826, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-19-March-1826-p-11)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-4-March-1826-p-3)*Leeds Mercury*, 4 March 1826, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-6-March-1826-p-4)*Glasgow Herald*, 6 March 1826, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-19-March-1826-p-11)*Examiner*, 19 March 1826, p. 11  
 
 
 # Citation: 

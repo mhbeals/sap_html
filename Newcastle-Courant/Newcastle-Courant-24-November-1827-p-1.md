@@ -1,14 +1,14 @@
 # *Newcastle Courant*, 24 November 1827, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 20 November 1827, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-20-November-1827-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-20-November-1827-p-2)*Hull Packet*, 20 November 1827, p. 2  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 27 November 1827, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-27-November-1827-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 28 November 1827, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-28-November-1827-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 5 December 1827, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-5-December-1827-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Hull Packet*, 11 December 1827, p. 2](https://mhbeals.github.io/sap_html/Hull-Packet/Hull-Packet-11-December-1827-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 12 December 1827, p. 1](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-12-December-1827-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-27-November-1827-p-2)*Hull Packet*, 27 November 1827, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-28-November-1827-p-2)*Derby Mercury*, 28 November 1827, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-5-December-1827-p-1)*Derby Mercury*, 5 December 1827, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-11-December-1827-p-2)*Hull Packet*, 11 December 1827, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-12-December-1827-p-1)*Derby Mercury*, 12 December 1827, p. 1  
 
 
 # Citation: 

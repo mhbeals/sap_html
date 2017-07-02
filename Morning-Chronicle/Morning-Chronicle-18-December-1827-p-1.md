@@ -1,7 +1,7 @@
 # *Morning Chronicle*, 18 December 1827, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 23 December 1827, p. 11](https://mhbeals.github.io/sap_html/Examiner/Examiner-23-December-1827-p-11)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-23-December-1827-p-11)*Examiner*, 23 December 1827, p. 11  
 
 
 # Citation: 

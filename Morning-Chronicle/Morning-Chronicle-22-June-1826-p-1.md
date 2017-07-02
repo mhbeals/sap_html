@@ -1,11 +1,11 @@
 # *Morning Chronicle*, 22 June 1826, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 4 June 1826, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-4-June-1826-p-13)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 18 June 1826, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-18-June-1826-p-15)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-4-June-1826-p-13)*Examiner*, 4 June 1826, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-18-June-1826-p-15)*Examiner*, 18 June 1826, p. 15  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 2 July 1826, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-2-July-1826-p-16)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-2-July-1826-p-16)*Examiner*, 2 July 1826, p. 16  
 
 
 # Citation: 

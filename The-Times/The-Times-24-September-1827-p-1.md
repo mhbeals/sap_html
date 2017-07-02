@@ -1,12 +1,12 @@
 # *The Times*, 24 September 1827, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Newcastle Courant*, 15 September 1827, p. 1](https://mhbeals.github.io/sap_html/Newcastle-Courant/Newcastle-Courant-15-September-1827-p-1)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-15-September-1827-p-1)*Newcastle Courant*, 15 September 1827, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 26 September 1827, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-26-September-1827-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 3 October 1827, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-3-October-1827-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Derby Mercury*, 10 October 1827, p. 2](https://mhbeals.github.io/sap_html/Derby-Mercury/Derby-Mercury-10-October-1827-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-26-September-1827-p-2)*Derby Mercury*, 26 September 1827, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-3-October-1827-p-2)*Derby Mercury*, 3 October 1827, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-10-October-1827-p-2)*Derby Mercury*, 10 October 1827, p. 2  
 
 
 # Citation: 

@@ -1,8 +1,8 @@
 # *Derby Mercury*, 3 January 1827, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Glasgow Herald*, 5 January 1827, p. 1](https://mhbeals.github.io/sap_html/Glasgow-Herald/Glasgow-Herald-5-January-1827-p-1)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 7 January 1827, p. 6](https://mhbeals.github.io/sap_html/Examiner/Examiner-7-January-1827-p-6)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-5-January-1827-p-1)*Glasgow Herald*, 5 January 1827, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-7-January-1827-p-6)*Examiner*, 7 January 1827, p. 6  
 
 
 # Citation: 

@@ -1,7 +1,7 @@
 # *Morning Chronicle*, 26 April 1826, p. 1  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 30 April 1826, p. 4](https://mhbeals.github.io/sap_html/Examiner/Examiner-30-April-1826-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-30-April-1826-p-4)*Examiner*, 30 April 1826, p. 4  
 
 
 # Citation: 

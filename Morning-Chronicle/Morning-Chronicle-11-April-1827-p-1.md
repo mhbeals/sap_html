@@ -1,10 +1,10 @@
 # *Morning Chronicle*, 11 April 1827, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 8 April 1827, p. 14](https://mhbeals.github.io/sap_html/Examiner/Examiner-8-April-1827-p-14)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-8-April-1827-p-14)*Examiner*, 8 April 1827, p. 14  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 22 April 1827, p. 13](https://mhbeals.github.io/sap_html/Examiner/Examiner-22-April-1827-p-13)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-22-April-1827-p-13)*Examiner*, 22 April 1827, p. 13  
 
 
 # Citation: 

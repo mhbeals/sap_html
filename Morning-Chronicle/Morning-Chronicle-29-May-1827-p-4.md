@@ -1,7 +1,7 @@
 # *Morning Chronicle*, 29 May 1827, p. 4  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 4 June 1827, p. 7](https://mhbeals.github.io/sap_html/The-Times/The-Times-4-June-1827-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-4-June-1827-p-7)*The Times*, 4 June 1827, p. 7  
 
 
 # Citation: 

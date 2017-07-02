@@ -1,12 +1,12 @@
 # *Morning Chronicle*, 26 December 1825, p. 1  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 25 December 1825, p. 15](https://mhbeals.github.io/sap_html/Examiner/Examiner-25-December-1825-p-15)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 25 December 1825, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-25-December-1825-p-16)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-25-December-1825-p-15)*Examiner*, 25 December 1825, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-25-December-1825-p-16)*Examiner*, 25 December 1825, p. 16  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 8 January 1826, p. 16](https://mhbeals.github.io/sap_html/Examiner/Examiner-8-January-1826-p-16)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 14 January 1826, p. 4](https://mhbeals.github.io/sap_html/The-Times/The-Times-14-January-1826-p-4)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-8-January-1826-p-16)*Examiner*, 8 January 1826, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-14-January-1826-p-4)*The Times*, 14 January 1826, p. 4  
 
 
 # Citation: 

@@ -1,11 +1,11 @@
 # *Examiner*, 25 September 1825, p. 13  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 22 September 1825, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-22-September-1825-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 23 September 1825, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-23-September-1825-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-22-September-1825-p-3)*The Times*, 22 September 1825, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-23-September-1825-p-3)*The Times*, 23 September 1825, p. 3  
   
 ### Content from this page subsequently appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Bristol Mercury*, 26 September 1825, p. 3](https://mhbeals.github.io/sap_html/Bristol-Mercury/Bristol-Mercury-26-September-1825-p-3)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-26-September-1825-p-3)*Bristol Mercury*, 26 September 1825, p. 3  
 
 
 # Citation: 

@@ -1,9 +1,9 @@
 # *Examiner*, 9 September 1827, p. 10  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 3 September 1827, p. 3](https://mhbeals.github.io/sap_html/The-Times/The-Times-3-September-1827-p-3)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 4 September 1827, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-4-September-1827-p-2)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*The Times*, 5 September 1827, p. 2](https://mhbeals.github.io/sap_html/The-Times/The-Times-5-September-1827-p-2)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-3-September-1827-p-3)*The Times*, 3 September 1827, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-4-September-1827-p-2)*The Times*, 4 September 1827, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-5-September-1827-p-2)*The Times*, 5 September 1827, p. 2  
 
 
 # Citation: 

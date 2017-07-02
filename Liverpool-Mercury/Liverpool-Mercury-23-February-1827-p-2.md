@@ -1,9 +1,9 @@
 # *Liverpool Mercury*, 23 February 1827, p. 2  
   
 ### Content from this page previously appeared in:  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 18 February 1827, p. 4](https://mhbeals.github.io/sap_html/Examiner/Examiner-18-February-1827-p-4)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 18 February 1827, p. 6](https://mhbeals.github.io/sap_html/Examiner/Examiner-18-February-1827-p-6)  
-![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) [*Examiner*, 18 February 1827, p. 7](https://mhbeals.github.io/sap_html/Examiner/Examiner-18-February-1827-p-7)  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-18-February-1827-p-4)*Examiner*, 18 February 1827, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-18-February-1827-p-6)*Examiner*, 18 February 1827, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-18-February-1827-p-7)*Examiner*, 18 February 1827, p. 7  
 
 
 # Citation: 
