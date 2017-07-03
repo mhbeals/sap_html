@@ -5,8 +5,8 @@
   
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-4-March-1859-p-8)*Morning Chronicle*, 4 March 1859, p. 8  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyd's-Illustrated-Newspaper/Lloyd's-Illustrated-Newspaper-6-March-1859-p-10)*Lloyd's Illustrated Newspaper*, 6 March 1859, p. 10  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyd's-Illustrated-Newspaper/Lloyd's-Illustrated-Newspaper-20-March-1859-p-9)*Lloyd's Illustrated Newspaper*, 20 March 1859, p. 9  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyds-Illustrated-Newspaper/Lloyds-Illustrated-Newspaper-6-March-1859-p-10)*Lloyd's Illustrated Newspaper*, 6 March 1859, p. 10  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyds-Illustrated-Newspaper/Lloyds-Illustrated-Newspaper-20-March-1859-p-9)*Lloyd's Illustrated Newspaper*, 20 March 1859, p. 9  
 
 
 # Citation: 
