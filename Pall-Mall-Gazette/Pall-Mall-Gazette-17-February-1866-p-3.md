@@ -1,6 +1,6 @@
 # *Pall Mall Gazette*, 17 February 1866, p. 3  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-17-February-1866-p-9)*The Times*, 17 February 1866, p. 9  
 
 

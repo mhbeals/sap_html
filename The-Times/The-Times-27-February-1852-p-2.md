@@ -1,6 +1,6 @@
 # *The Times*, 27 February 1852, p. 2  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Daily-News/Daily-News-27-February-1852-p-1)*Daily News*, 27 February 1852, p. 1  
 
 

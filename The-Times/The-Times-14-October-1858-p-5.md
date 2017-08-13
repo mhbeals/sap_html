@@ -1,6 +1,6 @@
 # *The Times*, 14 October 1858, p. 5  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Daily-News/Daily-News-14-October-1858-p-6)*Daily News*, 14 October 1858, p. 6  
   
 ### Content from this page subsequently appeared in:  

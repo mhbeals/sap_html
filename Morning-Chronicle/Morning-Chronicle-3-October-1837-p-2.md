@@ -1,6 +1,6 @@
 # *Morning Chronicle*, 3 October 1837, p. 2  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Brighton-Patriot/Brighton-Patriot-3-October-1837-p-1)*Brighton Patriot*, 3 October 1837, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-3-October-1837-p-4)*The Times*, 3 October 1837, p. 4  
   

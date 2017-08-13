@@ -1,6 +1,6 @@
 # *Pall Mall Gazette*, 2 December 1865, p. 16  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-2-December-1865-p-16)*Examiner*, 2 December 1865, p. 16  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-2-December-1865-p-6)*Leeds Mercury*, 2 December 1865, p. 6  
 

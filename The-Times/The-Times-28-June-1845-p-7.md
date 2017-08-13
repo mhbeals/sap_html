@@ -1,6 +1,6 @@
 # *The Times*, 28 June 1845, p. 7  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Northern-Star/Northern-Star-28-June-1845-p-22)*Northern Star*, 28 June 1845, p. 22  
   
 ### Content from this page subsequently appeared in:  

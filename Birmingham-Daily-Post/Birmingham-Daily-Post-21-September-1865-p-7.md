@@ -1,6 +1,6 @@
 # *Birmingham Daily Post*, 21 September 1865, p. 7  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-21-September-1865-p-2)*Leeds Mercury*, 21 September 1865, p. 2  
   
 ### Content from this page subsequently appeared in:  

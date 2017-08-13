@@ -1,6 +1,6 @@
 # *Bristol Mercury*, 23 March 1850, p. 8  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-23-March-1850-p-3)*Ipswich Journal*, 23 March 1850, p. 3  
 
 

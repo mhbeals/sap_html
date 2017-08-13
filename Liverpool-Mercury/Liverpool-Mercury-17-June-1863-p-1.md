@@ -1,6 +1,6 @@
 # *Liverpool Mercury*, 17 June 1863, p. 1  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Baner/Baner-17-June-1863-p-16)*Baner*, 17 June 1863, p. 16  
   
 ### Content from this page subsequently appeared in:  

@@ -1,6 +1,6 @@
 # *Cobbet's Weekly Political Register*, 15 October 1831, p. 24  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-15-October-1831-p-3)*Freeman's Journal*, 15 October 1831, p. 3  
 
 

@@ -1,6 +1,6 @@
 # *Leeds Mercury*, 9 June 1810, p. 2  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-9-June-1810-p-9)*Cobbet's Weekly Political Register*, 9 June 1810, p. 9  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-9-June-1810-p-1)*Jackson's Oxford Journal*, 9 June 1810, p. 1  
   

@@ -1,6 +1,6 @@
 # *The Times*, 29 August 1865, p. 7  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Pall-Mall-Gazette/Pall-Mall-Gazette-29-August-1865-p-10)*Pall Mall Gazette*, 29 August 1865, p. 10  
   
 ### Content from this page subsequently appeared in:  

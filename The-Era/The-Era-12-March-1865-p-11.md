@@ -1,6 +1,6 @@
 # *The Era*, 12 March 1865, p. 11  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyds-Illustrated-Newspaper/Lloyds-Illustrated-Newspaper-12-March-1865-p-12)*Lloyd's Illustrated Newspaper*, 12 March 1865, p. 12  
 
 

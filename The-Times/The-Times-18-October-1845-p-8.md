@@ -1,6 +1,6 @@
 # *The Times*, 18 October 1845, p. 8  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Northern-Star/Northern-Star-18-October-1845-p-27)*Northern Star*, 18 October 1845, p. 27  
   
 ### Content from this page subsequently appeared in:  

@@ -1,6 +1,6 @@
 # *NorthWales Chronicle*, 9 April 1839, p. 2  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Brighton-Patriot/Brighton-Patriot-9-April-1839-p-4)*Brighton Patriot*, 9 April 1839, p. 4  
 
 

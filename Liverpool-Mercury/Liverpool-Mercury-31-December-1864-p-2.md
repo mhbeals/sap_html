@@ -1,6 +1,6 @@
 # *Liverpool Mercury*, 31 December 1864, p. 2  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-31-December-1864-p-5)*Bristol Mercury*, 31 December 1864, p. 5  
 
 

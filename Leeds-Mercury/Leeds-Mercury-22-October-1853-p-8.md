@@ -1,6 +1,6 @@
 # *Leeds Mercury*, 22 October 1853, p. 8  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-22-October-1853-p-3)*Hampshire Portsmouth Telegraph*, 22 October 1853, p. 3  
 
 

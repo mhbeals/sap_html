@@ -1,6 +1,6 @@
 # *Birmingham Daily Post*, 27 August 1862, p. 1  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-27-August-1862-p-6)*Liverpool Mercury*, 27 August 1862, p. 6  
 
 

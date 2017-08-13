@@ -1,6 +1,6 @@
 # *Cobbet's Weekly Political Register*, 27 August 1831, p. 30  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Poor-Mans-Guardian/Poor-Mans-Guardian-27-August-1831-p-8)*Poor Man's Guardian*, 27 August 1831, p. 8  
 
 

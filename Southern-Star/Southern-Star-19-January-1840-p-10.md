@@ -1,6 +1,6 @@
 # *Southern Star*, 19 January 1840, p. 10  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-19-January-1840-p-11)*Examiner*, 19 January 1840, p. 11  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Charter/The-Charter-19-January-1840-p-7)*The Charter*, 19 January 1840, p. 7  
 

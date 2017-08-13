@@ -1,6 +1,6 @@
 # *Morning Chronicle*, 23 October 1851, p. 3  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Daily-News/Daily-News-23-October-1851-p-5)*Daily News*, 23 October 1851, p. 5  
   
 ### Content from this page subsequently appeared in:  

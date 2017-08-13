@@ -1,6 +1,6 @@
 # *Birmingham Daily Post*, 1 June 1860, p. 2  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-1-June-1860-p-8)*Newcastle Courant*, 1 June 1860, p. 8  
 
 

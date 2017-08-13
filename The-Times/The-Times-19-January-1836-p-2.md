@@ -1,6 +1,6 @@
 # *The Times*, 19 January 1836, p. 2  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-19-January-1836-p-2)*NorthWales Chronicle*, 19 January 1836, p. 2  
 
 

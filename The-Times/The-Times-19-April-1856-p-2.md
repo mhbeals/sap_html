@@ -1,6 +1,6 @@
 # *The Times*, 19 April 1856, p. 2  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-19-April-1856-p-8)*Hampshire Portsmouth Telegraph*, 19 April 1856, p. 8  
 
 

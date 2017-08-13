@@ -1,6 +1,6 @@
 # *Caledonian Mercury*, 12 December 1863, p. 2  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-12-December-1863-p-6)*Glasgow Herald*, 12 December 1863, p. 6  
 
 

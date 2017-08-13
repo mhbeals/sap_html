@@ -1,6 +1,6 @@
 # *Cobbet's Weekly Political Register*, 9 March 1833, p. 27  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-9-March-1833-p-3)*Manchester Times*, 9 March 1833, p. 3  
 
 

@@ -1,6 +1,6 @@
 # *Bristol Mercury*, 27 September 1845, p. 6  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-27-September-1845-p-4)*Preston Chronicle*, 27 September 1845, p. 4  
   
 ### Content from this page subsequently appeared in:  

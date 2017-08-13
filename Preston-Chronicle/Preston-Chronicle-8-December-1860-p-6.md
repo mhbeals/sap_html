@@ -1,6 +1,6 @@
 # *Preston Chronicle*, 8 December 1860, p. 6  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-8-December-1860-p-5)*Manchester Times*, 8 December 1860, p. 5  
   
 ### Content from this page subsequently appeared in:  

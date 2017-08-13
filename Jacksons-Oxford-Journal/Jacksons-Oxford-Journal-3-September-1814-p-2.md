@@ -1,6 +1,6 @@
 # *Jackson's Oxford Journal*, 3 September 1814, p. 2  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-3-September-1814-p-3)*Caledonian Mercury*, 3 September 1814, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-3-September-1814-p-3)*Leeds Mercury*, 3 September 1814, p. 3  
   

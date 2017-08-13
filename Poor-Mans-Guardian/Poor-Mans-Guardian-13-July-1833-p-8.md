@@ -1,6 +1,6 @@
 # *Poor Man's Guardian*, 13 July 1833, p. 8  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-13-July-1833-p-32)*Cobbet's Weekly Political Register*, 13 July 1833, p. 32  
 
 

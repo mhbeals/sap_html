@@ -1,6 +1,6 @@
 # *Daily News*, 13 June 1857, p. 8  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-13-June-1857-p-16)*Examiner*, 13 June 1857, p. 16  
 
 
