@@ -1,7 +1,7 @@
 # *Baner*, 23 December 1863, p. 15  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-5-December-1863-p-6)*NorthWales Chronicle*, 5 December 1863, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-5-December-1863-p-6)*North Wales Chronicle*, 5 December 1863, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-21-December-1863-p-1)*Liverpool Mercury*, 21 December 1863, p. 1  
   
 ### Content from this page subsequently appeared in:  

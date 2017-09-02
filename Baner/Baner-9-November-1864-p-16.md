@@ -1,7 +1,7 @@
 # *Baner*, 9 November 1864, p. 16  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-22-October-1864-p-4)*NorthWales Chronicle*, 22 October 1864, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-22-October-1864-p-4)*North Wales Chronicle*, 22 October 1864, p. 4  
 
 
 # Citation: 
