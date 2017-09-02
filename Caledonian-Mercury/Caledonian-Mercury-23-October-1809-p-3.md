@@ -1,5 +1,7 @@
 # *Caledonian Mercury*, 23 October 1809, p. 3  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=/-24-October-1809-p-3)**, 24 October 1809, p. 3  
+  
+### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-24-October-1809-p-3)*Hull Packet*, 24 October 1809, p. 3  
 
 
 # Citation: 
