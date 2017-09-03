@@ -1,7 +1,7 @@
 # *Examiner*, 8 May 1852, p. 6  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Southern-Star/Southern-Star-29-May-1852-p-12)*Southern Star*, 29 May 1852, p. 12  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Northern-Star/Northern-Star-29-May-1852-p-12)*Northern Star*, 29 May 1852, p. 12  
 
 
 # Citation: 

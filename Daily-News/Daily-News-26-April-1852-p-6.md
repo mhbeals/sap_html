@@ -1,7 +1,7 @@
 # *Daily News*, 26 April 1852, p. 6  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Southern-Star/Southern-Star-24-April-1852-p-10)*Southern Star*, 24 April 1852, p. 10  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Northern-Star/Northern-Star-24-April-1852-p-10)*Northern Star*, 24 April 1852, p. 10  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-24-April-1852-p-6)*The Times*, 24 April 1852, p. 6  
   
 ### Content from this page simultaneously appeared in:  

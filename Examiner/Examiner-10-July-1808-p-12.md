@@ -1,5 +1,7 @@
 # *Examiner*, 10 July 1808, p. 12  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=/-12-July-1808-p-3)**, 12 July 1808, p. 3  
+  
+### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-12-July-1808-p-3)*Hull Packet*, 12 July 1808, p. 3  
 
 
 # Citation: 
