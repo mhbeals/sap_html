@@ -20,7 +20,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyds-Illustrated-Newspaper/Lloyds-Illustrated-Newspaper-28-January-1855-p-1)*Lloyd's Illustrated Newspaper*, 28 January 1855, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewmans-Exeter-Flying-Post/Trewmans-Exeter-Flying-Post-1-February-1855-p-5)*Trewman's Exeter Flying Post*, 1 February 1855, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-2-February-1855-p-3)*Newcastle Courant*, 2 February 1855, p. 3  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-3-February-1855-p-3)*NorthWales Chronicle*, 3 February 1855, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-3-February-1855-p-3)*North Wales Chronicle*, 3 February 1855, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-3-February-1855-p-3)*Ipswich Journal*, 3 February 1855, p. 3  
 
 

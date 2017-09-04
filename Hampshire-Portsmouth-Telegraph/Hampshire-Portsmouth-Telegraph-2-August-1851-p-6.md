@@ -10,7 +10,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-26-July-1851-p-4)*Bristol Mercury*, 26 July 1851, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyds-Illustrated-Newspaper/Lloyds-Illustrated-Newspaper-27-July-1851-p-3)*Lloyd's Illustrated Newspaper*, 27 July 1851, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyds-Illustrated-Newspaper/Lloyds-Illustrated-Newspaper-27-July-1851-p-9)*Lloyd's Illustrated Newspaper*, 27 July 1851, p. 9  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-27-July-1851-p-3)*Reynold's Newspaper*, 27 July 1851, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-27-July-1851-p-3)*Reynolds's Newspaper*, 27 July 1851, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-29-July-1851-p-6)*Morning Chronicle*, 29 July 1851, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-29-July-1851-p-5)*The Times*, 29 July 1851, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Daily-News/Daily-News-30-July-1851-p-5)*Daily News*, 30 July 1851, p. 5  
@@ -45,7 +45,7 @@
   
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyds-Illustrated-Newspaper/Lloyds-Illustrated-Newspaper-3-August-1851-p-2)*Lloyd's Illustrated Newspaper*, 3 August 1851, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-3-August-1851-p-3)*Reynold's Newspaper*, 3 August 1851, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-3-August-1851-p-3)*Reynolds's Newspaper*, 3 August 1851, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Era/The-Era-3-August-1851-p-15)*The Era*, 3 August 1851, p. 15  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-6-August-1851-p-4)*Freeman's Journal*, 6 August 1851, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-6-August-1851-p-2)*Aberdeen Journal*, 6 August 1851, p. 2  

@@ -5,12 +5,12 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Era/The-Era-23-February-1851-p-7)*The Era*, 23 February 1851, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-28-February-1851-p-6)*Hull Packet*, 28 February 1851, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-1-March-1851-p-4)*Jackson's Oxford Journal*, 1 March 1851, p. 4  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-1-March-1851-p-7)*NorthWales Chronicle*, 1 March 1851, p. 7  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-2-March-1851-p-5)*Reynold's Newspaper*, 2 March 1851, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-1-March-1851-p-7)*North Wales Chronicle*, 1 March 1851, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-2-March-1851-p-5)*Reynolds's Newspaper*, 2 March 1851, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-7-March-1851-p-4)*Newcastle Courant*, 7 March 1851, p. 4  
   
 ### Content from this page simultaneously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-15-March-1851-p-6)*NorthWales Chronicle*, 15 March 1851, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-15-March-1851-p-6)*North Wales Chronicle*, 15 March 1851, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-15-March-1851-p-7)*Preston Chronicle*, 15 March 1851, p. 7  
 
 

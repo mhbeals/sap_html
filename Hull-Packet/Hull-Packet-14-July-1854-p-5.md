@@ -31,7 +31,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewmans-Exeter-Flying-Post/Trewmans-Exeter-Flying-Post-20-July-1854-p-7)*Trewman's Exeter Flying Post*, 20 July 1854, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-21-July-1854-p-6)*Glasgow Herald*, 21 July 1854, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-22-July-1854-p-2)*Freeman's Journal*, 22 July 1854, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-22-July-1854-p-7)*NorthWales Chronicle*, 22 July 1854, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-22-July-1854-p-7)*North Wales Chronicle*, 22 July 1854, p. 7  
 
 
 # Citation: 

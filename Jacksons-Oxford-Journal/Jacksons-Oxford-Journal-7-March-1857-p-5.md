@@ -7,7 +7,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-6-March-1857-p-3)*Freeman's Journal*, 6 March 1857, p. 3  
   
 ### Content from this page simultaneously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-7-March-1857-p-3)*NorthWales Chronicle*, 7 March 1857, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-7-March-1857-p-3)*North Wales Chronicle*, 7 March 1857, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-7-March-1857-p-4)*Bristol Mercury*, 7 March 1857, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-7-March-1857-p-7)*Bristol Mercury*, 7 March 1857, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-7-March-1857-p-6)*Examiner*, 7 March 1857, p. 6  

@@ -6,13 +6,13 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-1-March-1865-p-7)*Aberdeen Journal*, 1 March 1865, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-2-March-1865-p-2)*Leeds Mercury*, 2 March 1865, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-3-March-1865-p-7)*Newcastle Courant*, 3 March 1865, p. 7  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-5-March-1865-p-8)*Reynold's Newspaper*, 5 March 1865, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-5-March-1865-p-8)*Reynolds's Newspaper*, 5 March 1865, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-6-March-1865-p-5)*Glasgow Herald*, 6 March 1865, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-8-March-1865-p-3)*Glasgow Herald*, 8 March 1865, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-8-March-1865-p-7)*Aberdeen Journal*, 8 March 1865, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-9-March-1865-p-2)*Leeds Mercury*, 9 March 1865, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-10-March-1865-p-7)*Newcastle Courant*, 10 March 1865, p. 7  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-11-March-1865-p-8)*NorthWales Chronicle*, 11 March 1865, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-11-March-1865-p-8)*North Wales Chronicle*, 11 March 1865, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-11-March-1865-p-4)*Leeds Mercury*, 11 March 1865, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-14-March-1865-p-3)*Glasgow Herald*, 14 March 1865, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-14-March-1865-p-2)*Leeds Mercury*, 14 March 1865, p. 2  
@@ -28,8 +28,8 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-17-March-1865-p-7)*Newcastle Courant*, 17 March 1865, p. 7  
   
 ### Content from this page simultaneously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-18-March-1865-p-8)*NorthWales Chronicle*, 18 March 1865, p. 8  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-18-March-1865-p-16)*NorthWales Chronicle*, 18 March 1865, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-18-March-1865-p-8)*North Wales Chronicle*, 18 March 1865, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-18-March-1865-p-16)*North Wales Chronicle*, 18 March 1865, p. 16  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-18-March-1865-p-7)*Bristol Mercury*, 18 March 1865, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-18-March-1865-p-4)*Leeds Mercury*, 18 March 1865, p. 4  
   
@@ -44,12 +44,12 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-27-March-1865-p-5)*Glasgow Herald*, 27 March 1865, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-29-March-1865-p-7)*Derby Mercury*, 29 March 1865, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-31-March-1865-p-7)*Newcastle Courant*, 31 March 1865, p. 7  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-2-April-1865-p-8)*Reynold's Newspaper*, 2 April 1865, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-2-April-1865-p-8)*Reynolds's Newspaper*, 2 April 1865, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-3-April-1865-p-2)*Leeds Mercury*, 3 April 1865, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-5-April-1865-p-7)*Glasgow Herald*, 5 April 1865, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-5-April-1865-p-7)*Aberdeen Journal*, 5 April 1865, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-7-April-1865-p-7)*Newcastle Courant*, 7 April 1865, p. 7  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-8-April-1865-p-8)*NorthWales Chronicle*, 8 April 1865, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-8-April-1865-p-8)*North Wales Chronicle*, 8 April 1865, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-8-April-1865-p-4)*Leeds Mercury*, 8 April 1865, p. 4  
 
 

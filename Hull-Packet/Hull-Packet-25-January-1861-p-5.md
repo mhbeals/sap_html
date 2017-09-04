@@ -45,7 +45,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-26-January-1861-p-7)*Leeds Mercury*, 26 January 1861, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-26-January-1861-p-2)*Preston Chronicle*, 26 January 1861, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-26-January-1861-p-5)*The Times*, 26 January 1861, p. 5  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-27-January-1861-p-6)*Reynold's Newspaper*, 27 January 1861, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-27-January-1861-p-6)*Reynolds's Newspaper*, 27 January 1861, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Era/The-Era-27-January-1861-p-14)*The Era*, 27 January 1861, p. 14  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-29-January-1861-p-5)*Morning Chronicle*, 29 January 1861, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-30-January-1861-p-3)*Derby Mercury*, 30 January 1861, p. 3  

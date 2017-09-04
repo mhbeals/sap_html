@@ -12,7 +12,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-19-January-1861-p-1)*Jackson's Oxford Journal*, 19 January 1861, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-19-January-1861-p-2)*Jackson's Oxford Journal*, 19 January 1861, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-19-January-1861-p-5)*Preston Chronicle*, 19 January 1861, p. 5  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-20-January-1861-p-13)*Reynold's Newspaper*, 20 January 1861, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-20-January-1861-p-13)*Reynolds's Newspaper*, 20 January 1861, p. 13  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-25-January-1861-p-4)*Hull Packet*, 25 January 1861, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-25-January-1861-p-4)*Newcastle Courant*, 25 January 1861, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-26-January-1861-p-2)*Hampshire Portsmouth Telegraph*, 26 January 1861, p. 2  
@@ -21,7 +21,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-26-January-1861-p-2)*Jackson's Oxford Journal*, 26 January 1861, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-26-January-1861-p-3)*Bristol Mercury*, 26 January 1861, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-26-January-1861-p-7)*Preston Chronicle*, 26 January 1861, p. 7  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-27-January-1861-p-13)*Reynold's Newspaper*, 27 January 1861, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-27-January-1861-p-13)*Reynolds's Newspaper*, 27 January 1861, p. 13  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-30-January-1861-p-8)*Derby Mercury*, 30 January 1861, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-1-February-1861-p-4)*Newcastle Courant*, 1 February 1861, p. 4  
   
@@ -30,7 +30,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-2-February-1861-p-1)*Jackson's Oxford Journal*, 2 February 1861, p. 1  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-3-February-1861-p-13)*Reynold's Newspaper*, 3 February 1861, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-3-February-1861-p-13)*Reynolds's Newspaper*, 3 February 1861, p. 13  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewmans-Exeter-Flying-Post/Trewmans-Exeter-Flying-Post-6-February-1861-p-2)*Trewman's Exeter Flying Post*, 6 February 1861, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-8-February-1861-p-4)*Newcastle Courant*, 8 February 1861, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-9-February-1861-p-2)*Hampshire Portsmouth Telegraph*, 9 February 1861, p. 2  

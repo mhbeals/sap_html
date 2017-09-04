@@ -2,8 +2,8 @@
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-1-August-1863-p-11)*The Times*, 1 August 1863, p. 11  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-2-August-1863-p-1)*Reynold's Newspaper*, 2 August 1863, p. 1  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-2-August-1863-p-4)*Reynold's Newspaper*, 2 August 1863, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-2-August-1863-p-1)*Reynolds's Newspaper*, 2 August 1863, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-2-August-1863-p-4)*Reynolds's Newspaper*, 2 August 1863, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Daily-News/Daily-News-3-August-1863-p-6)*Daily News*, 3 August 1863, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-3-August-1863-p-3)*Liverpool Mercury*, 3 August 1863, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-3-August-1863-p-5)*Liverpool Mercury*, 3 August 1863, p. 5  
@@ -66,8 +66,8 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyds-Illustrated-Newspaper/Lloyds-Illustrated-Newspaper-9-August-1863-p-7)*Lloyd's Illustrated Newspaper*, 9 August 1863, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyds-Illustrated-Newspaper/Lloyds-Illustrated-Newspaper-9-August-1863-p-9)*Lloyd's Illustrated Newspaper*, 9 August 1863, p. 9  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyds-Illustrated-Newspaper/Lloyds-Illustrated-Newspaper-9-August-1863-p-11)*Lloyd's Illustrated Newspaper*, 9 August 1863, p. 11  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-9-August-1863-p-2)*Reynold's Newspaper*, 9 August 1863, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-9-August-1863-p-5)*Reynold's Newspaper*, 9 August 1863, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-9-August-1863-p-2)*Reynolds's Newspaper*, 9 August 1863, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-9-August-1863-p-5)*Reynolds's Newspaper*, 9 August 1863, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Era/The-Era-9-August-1863-p-7)*The Era*, 9 August 1863, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Era/The-Era-9-August-1863-p-10)*The Era*, 9 August 1863, p. 10  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-12-August-1863-p-3)*Aberdeen Journal*, 12 August 1863, p. 3  

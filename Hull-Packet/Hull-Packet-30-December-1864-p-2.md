@@ -1,7 +1,7 @@
 # *Hull Packet*, 30 December 1864, p. 2  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-11-December-1864-p-8)*Reynold's Newspaper*, 11 December 1864, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-11-December-1864-p-8)*Reynolds's Newspaper*, 11 December 1864, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-14-December-1864-p-8)*Derby Mercury*, 14 December 1864, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewmans-Exeter-Flying-Post/Trewmans-Exeter-Flying-Post-14-December-1864-p-2)*Trewman's Exeter Flying Post*, 14 December 1864, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewmans-Exeter-Flying-Post/Trewmans-Exeter-Flying-Post-14-December-1864-p-3)*Trewman's Exeter Flying Post*, 14 December 1864, p. 3  
@@ -47,8 +47,8 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-31-December-1864-p-3)*Jackson's Oxford Journal*, 31 December 1864, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-31-December-1864-p-7)*Jackson's Oxford Journal*, 31 December 1864, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-31-December-1864-p-5)*Manchester Times*, 31 December 1864, p. 5  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-31-December-1864-p-8)*NorthWales Chronicle*, 31 December 1864, p. 8  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-31-December-1864-p-16)*NorthWales Chronicle*, 31 December 1864, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-31-December-1864-p-8)*North Wales Chronicle*, 31 December 1864, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-31-December-1864-p-16)*North Wales Chronicle*, 31 December 1864, p. 16  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-31-December-1864-p-2)*Bristol Mercury*, 31 December 1864, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-31-December-1864-p-6)*Bristol Mercury*, 31 December 1864, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-31-December-1864-p-2)*Preston Chronicle*, 31 December 1864, p. 2  

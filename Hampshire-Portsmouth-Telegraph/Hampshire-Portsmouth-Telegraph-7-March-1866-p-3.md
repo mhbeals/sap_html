@@ -15,7 +15,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-3-March-1866-p-5)*Preston Chronicle*, 3 March 1866, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-3-March-1866-p-9)*The Times*, 3 March 1866, p. 9  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-3-March-1866-p-12)*The Times*, 3 March 1866, p. 12  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-4-March-1866-p-5)*Reynold's Newspaper*, 4 March 1866, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-4-March-1866-p-5)*Reynolds's Newspaper*, 4 March 1866, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Birmingham-Daily-Post/Birmingham-Daily-Post-5-March-1866-p-5)*Birmingham Daily Post*, 5 March 1866, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Birmingham-Daily-Post/Birmingham-Daily-Post-5-March-1866-p-6)*Birmingham Daily Post*, 5 March 1866, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Birmingham-Daily-Post/Birmingham-Daily-Post-5-March-1866-p-8)*Birmingham Daily Post*, 5 March 1866, p. 8  
@@ -52,11 +52,8 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-10-March-1866-p-6)*Caledonian Mercury*, 10 March 1866, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-10-March-1866-p-8)*Examiner*, 10 March 1866, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-10-March-1866-p-10)*Examiner*, 10 March 1866, p. 10  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=/-10-March-1866-p-4)**, 10 March 1866, p. 4  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=/-10-March-1866-p-2)**, 10 March 1866, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=/-10-March-1866-p-4)**, 10 March 1866, p. 4  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-11-March-1866-p-4)*Reynold's Newspaper*, 11 March 1866, p. 4  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-11-March-1866-p-5)*Reynold's Newspaper*, 11 March 1866, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-11-March-1866-p-4)*Reynolds's Newspaper*, 11 March 1866, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-11-March-1866-p-5)*Reynolds's Newspaper*, 11 March 1866, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-12-March-1866-p-9)*The Times*, 12 March 1866, p. 9  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-14-March-1866-p-3)*Aberdeen Journal*, 14 March 1866, p. 3  
 

@@ -6,7 +6,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-25-February-1860-p-4)*Caledonian Mercury*, 25 February 1860, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-25-February-1860-p-7)*Ipswich Journal*, 25 February 1860, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-25-February-1860-p-8)*Ipswich Journal*, 25 February 1860, p. 8  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-26-February-1860-p-5)*Reynold's Newspaper*, 26 February 1860, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-26-February-1860-p-5)*Reynolds's Newspaper*, 26 February 1860, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Birmingham-Daily-Post/Birmingham-Daily-Post-27-February-1860-p-4)*Birmingham Daily Post*, 27 February 1860, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-27-February-1860-p-2)*Morning Chronicle*, 27 February 1860, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Birmingham-Daily-Post/Birmingham-Daily-Post-28-February-1860-p-4)*Birmingham Daily Post*, 28 February 1860, p. 4  
@@ -27,7 +27,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-3-March-1860-p-7)*Ipswich Journal*, 3 March 1860, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-3-March-1860-p-1)*Morning Chronicle*, 3 March 1860, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-3-March-1860-p-7)*Preston Chronicle*, 3 March 1860, p. 7  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-4-March-1860-p-5)*Reynold's Newspaper*, 4 March 1860, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-4-March-1860-p-5)*Reynolds's Newspaper*, 4 March 1860, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Birmingham-Daily-Post/Birmingham-Daily-Post-5-March-1860-p-3)*Birmingham Daily Post*, 5 March 1860, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Birmingham-Daily-Post/Birmingham-Daily-Post-5-March-1860-p-4)*Birmingham Daily Post*, 5 March 1860, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-5-March-1860-p-4)*Caledonian Mercury*, 5 March 1860, p. 4  
@@ -49,7 +49,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-10-March-1860-p-8)*Ipswich Journal*, 10 March 1860, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-10-March-1860-p-1)*Morning Chronicle*, 10 March 1860, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-10-March-1860-p-7)*Preston Chronicle*, 10 March 1860, p. 7  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-11-March-1860-p-5)*Reynold's Newspaper*, 11 March 1860, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-11-March-1860-p-5)*Reynolds's Newspaper*, 11 March 1860, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Birmingham-Daily-Post/Birmingham-Daily-Post-12-March-1860-p-4)*Birmingham Daily Post*, 12 March 1860, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-12-March-1860-p-4)*Caledonian Mercury*, 12 March 1860, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Birmingham-Daily-Post/Birmingham-Daily-Post-13-March-1860-p-4)*Birmingham Daily Post*, 13 March 1860, p. 4  
@@ -89,7 +89,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-17-March-1860-p-7)*Preston Chronicle*, 17 March 1860, p. 7  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-18-March-1860-p-5)*Reynold's Newspaper*, 18 March 1860, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-18-March-1860-p-5)*Reynolds's Newspaper*, 18 March 1860, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Birmingham-Daily-Post/Birmingham-Daily-Post-19-March-1860-p-4)*Birmingham Daily Post*, 19 March 1860, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-21-March-1860-p-7)*Aberdeen Journal*, 21 March 1860, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-21-March-1860-p-4)*Caledonian Mercury*, 21 March 1860, p. 4  
@@ -110,7 +110,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-24-March-1860-p-8)*Ipswich Journal*, 24 March 1860, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-24-March-1860-p-1)*Morning Chronicle*, 24 March 1860, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-24-March-1860-p-7)*Morning Chronicle*, 24 March 1860, p. 7  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-25-March-1860-p-5)*Reynold's Newspaper*, 25 March 1860, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-25-March-1860-p-5)*Reynolds's Newspaper*, 25 March 1860, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Birmingham-Daily-Post/Birmingham-Daily-Post-26-March-1860-p-4)*Birmingham Daily Post*, 26 March 1860, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-27-March-1860-p-1)*Morning Chronicle*, 27 March 1860, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-27-March-1860-p-7)*Morning Chronicle*, 27 March 1860, p. 7  
@@ -127,7 +127,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-31-March-1860-p-8)*Bristol Mercury*, 31 March 1860, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-31-March-1860-p-4)*Caledonian Mercury*, 31 March 1860, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-31-March-1860-p-8)*Ipswich Journal*, 31 March 1860, p. 8  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-1-April-1860-p-5)*Reynold's Newspaper*, 1 April 1860, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-1-April-1860-p-5)*Reynolds's Newspaper*, 1 April 1860, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Birmingham-Daily-Post/Birmingham-Daily-Post-2-April-1860-p-4)*Birmingham Daily Post*, 2 April 1860, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-4-April-1860-p-7)*Aberdeen Journal*, 4 April 1860, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-4-April-1860-p-7)*Derby Mercury*, 4 April 1860, p. 7  

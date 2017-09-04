@@ -14,7 +14,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-19-June-1861-p-7)*Derby Mercury*, 19 June 1861, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewmans-Exeter-Flying-Post/Trewmans-Exeter-Flying-Post-19-June-1861-p-3)*Trewman's Exeter Flying Post*, 19 June 1861, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-22-June-1861-p-3)*Jackson's Oxford Journal*, 22 June 1861, p. 3  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-22-June-1861-p-1)*NorthWales Chronicle*, 22 June 1861, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-22-June-1861-p-1)*North Wales Chronicle*, 22 June 1861, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-22-June-1861-p-2)*Ipswich Journal*, 22 June 1861, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Birmingham-Daily-Post/Birmingham-Daily-Post-25-June-1861-p-4)*Birmingham Daily Post*, 25 June 1861, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-25-June-1861-p-1)*Leeds Mercury*, 25 June 1861, p. 1  
@@ -27,7 +27,7 @@
   
 ### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-29-June-1861-p-3)*Jackson's Oxford Journal*, 29 June 1861, p. 3  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-29-June-1861-p-1)*NorthWales Chronicle*, 29 June 1861, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-29-June-1861-p-1)*North Wales Chronicle*, 29 June 1861, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-29-June-1861-p-4)*Preston Chronicle*, 29 June 1861, p. 4  
   
 ### Content from this page subsequently appeared in:  

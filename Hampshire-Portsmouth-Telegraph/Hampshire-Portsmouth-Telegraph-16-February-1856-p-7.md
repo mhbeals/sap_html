@@ -21,7 +21,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-1-February-1856-p-1)*Newcastle Courant*, 1 February 1856, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-2-February-1856-p-1)*Jackson's Oxford Journal*, 2 February 1856, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-2-February-1856-p-2)*Jackson's Oxford Journal*, 2 February 1856, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-2-February-1856-p-1)*NorthWales Chronicle*, 2 February 1856, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-2-February-1856-p-1)*North Wales Chronicle*, 2 February 1856, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-2-February-1856-p-1)*Ipswich Journal*, 2 February 1856, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-2-February-1856-p-3)*Leeds Mercury*, 2 February 1856, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-2-February-1856-p-1)*Preston Chronicle*, 2 February 1856, p. 1  
@@ -42,7 +42,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Daily-News/Daily-News-9-February-1856-p-1)*Daily News*, 9 February 1856, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-9-February-1856-p-1)*Jackson's Oxford Journal*, 9 February 1856, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-9-February-1856-p-2)*Jackson's Oxford Journal*, 9 February 1856, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-9-February-1856-p-1)*NorthWales Chronicle*, 9 February 1856, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-9-February-1856-p-1)*North Wales Chronicle*, 9 February 1856, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-9-February-1856-p-1)*Ipswich Journal*, 9 February 1856, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-9-February-1856-p-6)*Leeds Mercury*, 9 February 1856, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-9-February-1856-p-1)*Morning Chronicle*, 9 February 1856, p. 1  
@@ -73,7 +73,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-16-February-1856-p-2)*Jackson's Oxford Journal*, 16 February 1856, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-16-February-1856-p-2)*Liverpool Mercury*, 16 February 1856, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-16-February-1856-p-11)*Manchester Times*, 16 February 1856, p. 11  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-16-February-1856-p-1)*NorthWales Chronicle*, 16 February 1856, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-16-February-1856-p-1)*North Wales Chronicle*, 16 February 1856, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-16-February-1856-p-1)*Ipswich Journal*, 16 February 1856, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-16-February-1856-p-3)*Ipswich Journal*, 16 February 1856, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-16-February-1856-p-3)*Leeds Mercury*, 16 February 1856, p. 3  
@@ -115,7 +115,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-29-February-1856-p-4)*Hull Packet*, 29 February 1856, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-29-February-1856-p-4)*Newcastle Courant*, 29 February 1856, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-1-March-1856-p-2)*Jackson's Oxford Journal*, 1 March 1856, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-1-March-1856-p-2)*NorthWales Chronicle*, 1 March 1856, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-1-March-1856-p-2)*North Wales Chronicle*, 1 March 1856, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-1-March-1856-p-3)*Belfast News-Letter*, 1 March 1856, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-1-March-1856-p-3)*Bristol Mercury*, 1 March 1856, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-1-March-1856-p-1)*Ipswich Journal*, 1 March 1856, p. 1  
@@ -136,7 +136,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Daily-News/Daily-News-8-March-1856-p-1)*Daily News*, 8 March 1856, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-8-March-1856-p-1)*Jackson's Oxford Journal*, 8 March 1856, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-8-March-1856-p-2)*Jackson's Oxford Journal*, 8 March 1856, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-8-March-1856-p-2)*NorthWales Chronicle*, 8 March 1856, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-8-March-1856-p-2)*North Wales Chronicle*, 8 March 1856, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-8-March-1856-p-4)*Preston Chronicle*, 8 March 1856, p. 4  
 
 

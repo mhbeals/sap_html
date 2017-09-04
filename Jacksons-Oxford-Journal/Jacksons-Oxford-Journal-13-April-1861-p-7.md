@@ -2,7 +2,7 @@
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Daily-News/Daily-News-23-March-1861-p-7)*Daily News*, 23 March 1861, p. 7  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-23-March-1861-p-8)*NorthWales Chronicle*, 23 March 1861, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-23-March-1861-p-8)*North Wales Chronicle*, 23 March 1861, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-23-March-1861-p-7)*Bristol Mercury*, 23 March 1861, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-23-March-1861-p-8)*Ipswich Journal*, 23 March 1861, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Birmingham-Daily-Post/Birmingham-Daily-Post-25-March-1861-p-4)*Birmingham Daily Post*, 25 March 1861, p. 4  
@@ -18,7 +18,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-29-March-1861-p-8)*Hull Packet*, 29 March 1861, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-29-March-1861-p-7)*Newcastle Courant*, 29 March 1861, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-30-March-1861-p-4)*Manchester Times*, 30 March 1861, p. 4  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-30-March-1861-p-8)*NorthWales Chronicle*, 30 March 1861, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-30-March-1861-p-8)*North Wales Chronicle*, 30 March 1861, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-30-March-1861-p-3)*Bristol Mercury*, 30 March 1861, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-30-March-1861-p-6)*Bristol Mercury*, 30 March 1861, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-30-March-1861-p-7)*Bristol Mercury*, 30 March 1861, p. 7  
@@ -41,7 +41,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Daily-News/Daily-News-6-April-1861-p-7)*Daily News*, 6 April 1861, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-6-April-1861-p-3)*Hampshire Portsmouth Telegraph*, 6 April 1861, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-6-April-1861-p-7)*Hampshire Portsmouth Telegraph*, 6 April 1861, p. 7  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-6-April-1861-p-8)*NorthWales Chronicle*, 6 April 1861, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-6-April-1861-p-8)*North Wales Chronicle*, 6 April 1861, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-6-April-1861-p-8)*Bristol Mercury*, 6 April 1861, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-6-April-1861-p-13)*Examiner*, 6 April 1861, p. 13  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-6-April-1861-p-7)*Ipswich Journal*, 6 April 1861, p. 7  
@@ -74,7 +74,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Daily-News/Daily-News-13-April-1861-p-7)*Daily News*, 13 April 1861, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-13-April-1861-p-4)*Freeman's Journal*, 13 April 1861, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-13-April-1861-p-7)*Hampshire Portsmouth Telegraph*, 13 April 1861, p. 7  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-13-April-1861-p-8)*NorthWales Chronicle*, 13 April 1861, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-13-April-1861-p-8)*North Wales Chronicle*, 13 April 1861, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-13-April-1861-p-3)*Bristol Mercury*, 13 April 1861, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-13-April-1861-p-8)*Bristol Mercury*, 13 April 1861, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-13-April-1861-p-7)*Ipswich Journal*, 13 April 1861, p. 7  
@@ -82,7 +82,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-13-April-1861-p-8)*Leeds Mercury*, 13 April 1861, p. 8  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-14-April-1861-p-5)*Reynold's Newspaper*, 14 April 1861, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-14-April-1861-p-5)*Reynolds's Newspaper*, 14 April 1861, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-16-April-1861-p-7)*Morning Chronicle*, 16 April 1861, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Baner/Baner-17-April-1861-p-13)*Baner*, 17 April 1861, p. 13  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-17-April-1861-p-4)*Freeman's Journal*, 17 April 1861, p. 4  
@@ -129,7 +129,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewmans-Exeter-Flying-Post/Trewmans-Exeter-Flying-Post-1-May-1861-p-3)*Trewman's Exeter Flying Post*, 1 May 1861, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-2-May-1861-p-4)*Belfast News-Letter*, 2 May 1861, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-3-May-1861-p-7)*Newcastle Courant*, 3 May 1861, p. 7  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-4-May-1861-p-8)*NorthWales Chronicle*, 4 May 1861, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-4-May-1861-p-8)*North Wales Chronicle*, 4 May 1861, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-4-May-1861-p-7)*Bristol Mercury*, 4 May 1861, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-4-May-1861-p-7)*Ipswich Journal*, 4 May 1861, p. 7  
 

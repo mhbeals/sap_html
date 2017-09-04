@@ -31,12 +31,12 @@
   
 ### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-11-June-1864-p-3)*Hampshire Portsmouth Telegraph*, 11 June 1864, p. 3  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-11-June-1864-p-8)*NorthWales Chronicle*, 11 June 1864, p. 8  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-11-June-1864-p-12)*NorthWales Chronicle*, 11 June 1864, p. 12  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-11-June-1864-p-8)*North Wales Chronicle*, 11 June 1864, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-11-June-1864-p-12)*North Wales Chronicle*, 11 June 1864, p. 12  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-11-June-1864-p-7)*Bristol Mercury*, 11 June 1864, p. 7  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-12-June-1864-p-8)*Reynold's Newspaper*, 12 June 1864, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-12-June-1864-p-8)*Reynolds's Newspaper*, 12 June 1864, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-15-June-1864-p-7)*Glasgow Herald*, 15 June 1864, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-15-June-1864-p-7)*Derby Mercury*, 15 June 1864, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-17-June-1864-p-7)*Newcastle Courant*, 17 June 1864, p. 7  
@@ -50,7 +50,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-22-June-1864-p-8)*Derby Mercury*, 22 June 1864, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-24-June-1864-p-7)*Newcastle Courant*, 24 June 1864, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-25-June-1864-p-3)*Hampshire Portsmouth Telegraph*, 25 June 1864, p. 3  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-25-June-1864-p-8)*NorthWales Chronicle*, 25 June 1864, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-25-June-1864-p-8)*North Wales Chronicle*, 25 June 1864, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-28-June-1864-p-8)*Liverpool Mercury*, 28 June 1864, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-29-June-1864-p-6)*Derby Mercury*, 29 June 1864, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-29-June-1864-p-7)*Derby Mercury*, 29 June 1864, p. 7  

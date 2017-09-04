@@ -106,7 +106,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Daily-News/Daily-News-29-July-1854-p-1)*Daily News*, 29 July 1854, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-29-July-1854-p-1)*Manchester Times*, 29 July 1854, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-29-July-1854-p-2)*Manchester Times*, 29 July 1854, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-29-July-1854-p-4)*NorthWales Chronicle*, 29 July 1854, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-29-July-1854-p-4)*North Wales Chronicle*, 29 July 1854, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-29-July-1854-p-1)*Ipswich Journal*, 29 July 1854, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-29-July-1854-p-6)*Leeds Mercury*, 29 July 1854, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-29-July-1854-p-1)*Morning Chronicle*, 29 July 1854, p. 1  
@@ -129,7 +129,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-4-August-1854-p-5)*Newcastle Courant*, 4 August 1854, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-4-August-1854-p-7)*Newcastle Courant*, 4 August 1854, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-5-August-1854-p-3)*Manchester Times*, 5 August 1854, p. 3  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-5-August-1854-p-1)*NorthWales Chronicle*, 5 August 1854, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-5-August-1854-p-1)*North Wales Chronicle*, 5 August 1854, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-5-August-1854-p-1)*Ipswich Journal*, 5 August 1854, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Era/The-Era-6-August-1854-p-2)*The Era*, 6 August 1854, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Belfast-News-Letter/Belfast-News-Letter-7-August-1854-p-3)*Belfast News-Letter*, 7 August 1854, p. 3  
@@ -149,7 +149,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-11-August-1854-p-1)*Newcastle Courant*, 11 August 1854, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-11-August-1854-p-8)*Newcastle Courant*, 11 August 1854, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-12-August-1854-p-2)*Manchester Times*, 12 August 1854, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-12-August-1854-p-4)*NorthWales Chronicle*, 12 August 1854, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-12-August-1854-p-4)*North Wales Chronicle*, 12 August 1854, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-12-August-1854-p-1)*Ipswich Journal*, 12 August 1854, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-12-August-1854-p-2)*Ipswich Journal*, 12 August 1854, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-12-August-1854-p-8)*Preston Chronicle*, 12 August 1854, p. 8  
@@ -171,7 +171,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-19-August-1854-p-8)*Hampshire Portsmouth Telegraph*, 19 August 1854, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-19-August-1854-p-2)*Manchester Times*, 19 August 1854, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Manchester-Times/Manchester-Times-19-August-1854-p-3)*Manchester Times*, 19 August 1854, p. 3  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-19-August-1854-p-1)*NorthWales Chronicle*, 19 August 1854, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-19-August-1854-p-1)*North Wales Chronicle*, 19 August 1854, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-19-August-1854-p-4)*Ipswich Journal*, 19 August 1854, p. 4  
 
 

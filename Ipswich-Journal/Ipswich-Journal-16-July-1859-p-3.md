@@ -1,7 +1,7 @@
 # *Ipswich Journal*, 16 July 1859, p. 3  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-25-June-1859-p-4)*NorthWales Chronicle*, 25 June 1859, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-25-June-1859-p-4)*North Wales Chronicle*, 25 June 1859, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-1-July-1859-p-4)*Hull Packet*, 1 July 1859, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-1-July-1859-p-4)*Newcastle Courant*, 1 July 1859, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-2-July-1859-p-2)*Jackson's Oxford Journal*, 2 July 1859, p. 2  
@@ -12,7 +12,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Birmingham-Daily-Post/Birmingham-Daily-Post-8-July-1859-p-3)*Birmingham Daily Post*, 8 July 1859, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-8-July-1859-p-4)*Hull Packet*, 8 July 1859, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-9-July-1859-p-2)*Jackson's Oxford Journal*, 9 July 1859, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-9-July-1859-p-1)*NorthWales Chronicle*, 9 July 1859, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-9-July-1859-p-1)*North Wales Chronicle*, 9 July 1859, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-9-July-1859-p-12)*The Times*, 9 July 1859, p. 12  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-11-July-1859-p-3)*Liverpool Mercury*, 11 July 1859, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-12-July-1859-p-3)*Caledonian Mercury*, 12 July 1859, p. 3  

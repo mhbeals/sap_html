@@ -53,7 +53,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-10-February-1866-p-6)*Ipswich Journal*, 10 February 1866, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-10-February-1866-p-2)*Preston Chronicle*, 10 February 1866, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyds-Illustrated-Newspaper/Lloyds-Illustrated-Newspaper-11-February-1866-p-8)*Lloyd's Illustrated Newspaper*, 11 February 1866, p. 8  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-11-February-1866-p-5)*Reynold's Newspaper*, 11 February 1866, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-11-February-1866-p-5)*Reynolds's Newspaper*, 11 February 1866, p. 5  
 
 
 # Citation: 

@@ -4,7 +4,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-27-June-1863-p-7)*Glasgow Herald*, 27 June 1863, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-27-June-1863-p-2)*Jackson's Oxford Journal*, 27 June 1863, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-27-June-1863-p-3)*Liverpool Mercury*, 27 June 1863, p. 3  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-27-June-1863-p-13)*NorthWales Chronicle*, 27 June 1863, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-27-June-1863-p-13)*North Wales Chronicle*, 27 June 1863, p. 13  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-27-June-1863-p-7)*Bristol Mercury*, 27 June 1863, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-27-June-1863-p-3)*Preston Chronicle*, 27 June 1863, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-29-June-1863-p-3)*Caledonian Mercury*, 29 June 1863, p. 3  
@@ -16,7 +16,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-4-July-1863-p-7)*Glasgow Herald*, 4 July 1863, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-4-July-1863-p-2)*Jackson's Oxford Journal*, 4 July 1863, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-4-July-1863-p-3)*Liverpool Mercury*, 4 July 1863, p. 3  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-4-July-1863-p-16)*NorthWales Chronicle*, 4 July 1863, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-4-July-1863-p-16)*North Wales Chronicle*, 4 July 1863, p. 16  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-4-July-1863-p-5)*Bristol Mercury*, 4 July 1863, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-4-July-1863-p-7)*Bristol Mercury*, 4 July 1863, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-6-July-1863-p-3)*Caledonian Mercury*, 6 July 1863, p. 3  
@@ -59,7 +59,7 @@
 ### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-18-July-1863-p-3)*Jackson's Oxford Journal*, 18 July 1863, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-18-July-1863-p-7)*Jackson's Oxford Journal*, 18 July 1863, p. 7  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-18-July-1863-p-16)*NorthWales Chronicle*, 18 July 1863, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-18-July-1863-p-16)*North Wales Chronicle*, 18 July 1863, p. 16  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-18-July-1863-p-3)*Bristol Mercury*, 18 July 1863, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-18-July-1863-p-7)*Bristol Mercury*, 18 July 1863, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-18-July-1863-p-12)*Examiner*, 18 July 1863, p. 12  
@@ -68,7 +68,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-18-July-1863-p-8)*Preston Chronicle*, 18 July 1863, p. 8  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-19-July-1863-p-3)*Reynold's Newspaper*, 19 July 1863, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-19-July-1863-p-3)*Reynolds's Newspaper*, 19 July 1863, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Era/The-Era-19-July-1863-p-5)*The Era*, 19 July 1863, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-20-July-1863-p-3)*Caledonian Mercury*, 20 July 1863, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-22-July-1863-p-6)*Aberdeen Journal*, 22 July 1863, p. 6  
@@ -88,7 +88,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-30-July-1863-p-3)*Caledonian Mercury*, 30 July 1863, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-31-July-1863-p-7)*Newcastle Courant*, 31 July 1863, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-1-August-1863-p-7)*Glasgow Herald*, 1 August 1863, p. 7  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-1-August-1863-p-4)*NorthWales Chronicle*, 1 August 1863, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-1-August-1863-p-4)*North Wales Chronicle*, 1 August 1863, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-1-August-1863-p-2)*Bristol Mercury*, 1 August 1863, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-3-August-1863-p-3)*Caledonian Mercury*, 3 August 1863, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-5-August-1863-p-7)*Derby Mercury*, 5 August 1863, p. 7  

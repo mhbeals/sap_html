@@ -10,7 +10,7 @@
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyds-Illustrated-Newspaper/Lloyds-Illustrated-Newspaper-17-September-1854-p-5)*Lloyd's Illustrated Newspaper*, 17 September 1854, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyds-Illustrated-Newspaper/Lloyds-Illustrated-Newspaper-1-October-1854-p-8)*Lloyd's Illustrated Newspaper*, 1 October 1854, p. 8  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-7-October-1854-p-5)*NorthWales Chronicle*, 7 October 1854, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-7-October-1854-p-5)*North Wales Chronicle*, 7 October 1854, p. 5  
 
 
 # Citation: 

@@ -32,7 +32,7 @@
   
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Lloyds-Illustrated-Newspaper/Lloyds-Illustrated-Newspaper-13-October-1861-p-5)*Lloyd's Illustrated Newspaper*, 13 October 1861, p. 5  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-13-October-1861-p-12)*Reynold's Newspaper*, 13 October 1861, p. 12  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-13-October-1861-p-12)*Reynolds's Newspaper*, 13 October 1861, p. 12  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Era/The-Era-13-October-1861-p-15)*The Era*, 13 October 1861, p. 15  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Baner/Baner-16-October-1861-p-15)*Baner*, 16 October 1861, p. 15  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-16-October-1861-p-1)*Caledonian Mercury*, 16 October 1861, p. 1  

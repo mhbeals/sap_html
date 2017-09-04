@@ -8,7 +8,6 @@
   
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-30-March-1866-p-8)*Hull Packet*, 30 March 1866, p. 8  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=/-14-April-1866-p-1)**, 14 April 1866, p. 1  
 
 
 # Citation: 

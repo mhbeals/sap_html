@@ -10,21 +10,22 @@
   
 ### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-23-March-1839-p-2)*Preston Chronicle*, 23 March 1839, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-23-March-1839-p-4)*Preston Chronicle*, 23 March 1839, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Chartist/Chartist-23-March-1839-p-1)*Chartist*, 23 March 1839, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-23-March-1839-p-3)*Ipswich Journal*, 23 March 1839, p. 3  
   
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Champion/Champion-24-March-1839-p-1)*Champion*, 24 March 1839, p. 1  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Charter/The-Charter-24-March-1839-p-3)*The Charter*, 24 March 1839, p. 3  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Charter/The-Charter-24-March-1839-p-4)*The Charter*, 24 March 1839, p. 4  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Charter/The-Charter-24-March-1839-p-6)*The Charter*, 24 March 1839, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Charter/Charter-24-March-1839-p-3)*Charter*, 24 March 1839, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Charter/Charter-24-March-1839-p-4)*Charter*, 24 March 1839, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Charter/Charter-24-March-1839-p-6)*Charter*, 24 March 1839, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Era/The-Era-24-March-1839-p-2)*The Era*, 24 March 1839, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-24-March-1839-p-8)*Examiner*, 24 March 1839, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Operative/Operative-24-March-1839-p-3)*Operative*, 24 March 1839, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Operative/Operative-24-March-1839-p-6)*Operative*, 24 March 1839, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-25-March-1839-p-2)*Hampshire Portsmouth Telegraph*, 25 March 1839, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Brighton-Patriot/Brighton-Patriot-26-March-1839-p-4)*Brighton Patriot*, 26 March 1839, p. 4  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-26-March-1839-p-3)*NorthWales Chronicle*, 26 March 1839, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-26-March-1839-p-3)*North Wales Chronicle*, 26 March 1839, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-27-March-1839-p-4)*Aberdeen Journal*, 27 March 1839, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-30-March-1839-p-2)*Ipswich Journal*, 30 March 1839, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-30-March-1839-p-3)*The Times*, 30 March 1839, p. 3  
@@ -33,7 +34,7 @@
 
 # Citation: 
 
-Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.0.1.* 2 June 2017. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
+Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.2.2.* 30 July 2017. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
 
 # Nota Bona
 

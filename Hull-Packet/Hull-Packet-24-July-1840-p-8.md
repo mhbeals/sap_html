@@ -9,8 +9,8 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-16-July-1840-p-4)*Morning Chronicle*, 16 July 1840, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-16-July-1840-p-7)*The Times*, 16 July 1840, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-17-July-1840-p-7)*Morning Chronicle*, 17 July 1840, p. 7  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-18-July-1840-p-5)*Leeds Mercury*, 18 July 1840, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Preston-Chronicle/Preston-Chronicle-18-July-1840-p-2)*Preston Chronicle*, 18 July 1840, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-18-July-1840-p-5)*Leeds Mercury*, 18 July 1840, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Era/The-Era-19-July-1840-p-10)*The Era*, 19 July 1840, p. 10  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Era/The-Era-19-July-1840-p-11)*The Era*, 19 July 1840, p. 11  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-20-July-1840-p-2)*Freeman's Journal*, 20 July 1840, p. 2  
@@ -36,7 +36,7 @@
 
 # Citation: 
 
-Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.0.1.* 2 June 2017. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
+Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.2.2.* 30 July 2017. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
 
 # Nota Bona
 

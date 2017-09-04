@@ -4,11 +4,16 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-25-June-1807-p-2)*Caledonian Mercury*, 25 June 1807, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-25-June-1807-p-4)*Derby Mercury*, 25 June 1807, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-27-June-1807-p-2)*Caledonian Mercury*, 27 June 1807, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-29-June-1807-p-1)*Hampshire Portsmouth Telegraph*, 29 June 1807, p. 1  
+  
+### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-9-July-1807-p-4)*Derby Mercury*, 9 July 1807, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-16-July-1807-p-4)*Derby Mercury*, 16 July 1807, p. 4  
 
 
 # Citation: 
 
-Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.0.1.* 2 June 2017. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
+Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.2.2.* 30 July 2017. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
 
 # Nota Bona
 
