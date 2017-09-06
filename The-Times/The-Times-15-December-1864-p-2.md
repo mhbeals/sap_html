@@ -1,7 +1,7 @@
 # *The Times*, 15 December 1864, p. 2  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynolds-Newspaper/Reynolds-Newspaper-11-December-1864-p-8)*Reynold's Newspaper*, 11 December 1864, p. 8  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Reynoldss-Newspaper/Reynoldss-Newspaper-11-December-1864-p-8)*Reynolds's Newspaper*, 11 December 1864, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-14-December-1864-p-8)*Glasgow Herald*, 14 December 1864, p. 8  
   
 ### Content from this page simultaneously appeared in:  

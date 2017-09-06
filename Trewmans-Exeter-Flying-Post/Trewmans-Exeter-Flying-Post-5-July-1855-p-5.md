@@ -1,7 +1,7 @@
 # *Trewman's Exeter Flying Post*, 5 July 1855, p. 5  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-7-July-1855-p-6)*NorthWales Chronicle*, 7 July 1855, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=North-Wales-Chronicle/North-Wales-Chronicle-7-July-1855-p-6)*North Wales Chronicle*, 7 July 1855, p. 6  
 
 
 # Citation: 
