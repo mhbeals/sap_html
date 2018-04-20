@@ -1,6 +1,6 @@
 						
 
-# *New Zealand Advertiser and Bay of Islands Gazette*, 10 December 1840, p. 0  
+# *New Zealand Advertiser and Bay of Islands Gazette*, 10 December 1840, Full Issue  
   
 ### Content from this page previously appeared in:  
 

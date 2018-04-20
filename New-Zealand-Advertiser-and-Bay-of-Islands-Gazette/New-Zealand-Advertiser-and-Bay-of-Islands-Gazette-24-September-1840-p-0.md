@@ -1,11 +1,11 @@
 						
 
-# *New Zealand Advertiser and Bay of Islands Gazette*, 24 September 1840, p. 0  
+# *New Zealand Advertiser and Bay of Islands Gazette*, 24 September 1840, Full Issue  
   
 ### Content from this page previously appeared in:  
 
 
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=New-Zealand-Gazette/New-Zealand-Gazette-15-August-1840-p-0)*New Zealand Gazette*, 15 August 1840, p. 0  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=New-Zealand-Gazette/New-Zealand-Gazette-15-August-1840-p-0)*New Zealand Gazette*, 15 August 1840, Full Issue  
 
 
 ### Content from this page simultaneously appeared in:  
@@ -15,7 +15,7 @@
 ### Content from this page subsequently appeared in:  
 
 
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=New-Zealand-Gazette/New-Zealand-Gazette-17-October-1840-p-0)*New Zealand Gazette*, 17 October 1840, p. 0  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=New-Zealand-Gazette/New-Zealand-Gazette-17-October-1840-p-0)*New Zealand Gazette*, 17 October 1840, Full Issue  
 
 
 # Citation: 

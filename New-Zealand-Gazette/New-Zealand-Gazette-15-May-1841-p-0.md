@@ -1,6 +1,6 @@
 						
 
-# *New Zealand Gazette*, 15 May 1841, p. 0  
+# *New Zealand Gazette*, 15 May 1841, Full Issue  
   
 ### Content from this page previously appeared in:  
 

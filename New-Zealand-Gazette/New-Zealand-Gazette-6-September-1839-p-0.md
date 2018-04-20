@@ -1,6 +1,6 @@
 						
 
-# *New Zealand Gazette*, 6 September 1839, p. 0  
+# *New Zealand Gazette*, 6 September 1839, Full Issue  
   
 ### Content from this page previously appeared in:  
 

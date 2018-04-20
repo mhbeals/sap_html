@@ -1,6 +1,6 @@
 						
 
-# *New Zealand Gazette*, 13 June 1840, p. 0  
+# *New Zealand Gazette*, 13 June 1840, Full Issue  
   
 ### Content from this page previously appeared in:  
 
