@@ -2,15 +2,24 @@
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-23-November-1825-p-2)*Aberdeen Journal*, 23 November 1825, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-6-March-1823-p-2)*Sydney Gazette*, 6 March 1823, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-30-December-1824-p-1)*Australian*, 30 December 1824, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser /Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser -1-April-1825-p-1)*Hobart Town Gazette and Van Diemen's Land Advertiser *, 1 April 1825, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser /Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser -16-July-1825-p-4)*Hobart Town Gazette and Van Diemen's Land Advertiser *, 16 July 1825, p. 4  
+  
+### Content from this page simeltaneously appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser /Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser -3-December-1825-p-3)*Hobart Town Gazette and Van Diemen's Land Advertiser *, 3 December 1825, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser /Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser -3-December-1825-p-3)*Hobart Town Gazette and Van Diemen's Land Advertiser *, 3 December 1825, p. 3  
   
 ### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-23-August-1826-p-4)*Sydney Gazette*, 23 August 1826, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-6-December-1825-p-2)*The Times*, 6 December 1825, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-7-December-1825-p-4)*Morning Chronicle*, 7 December 1825, p. 4  
 
 
 # Citation: 
 
-Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.2.2.* 30 July 2017. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
+Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.1.0.* 14 August 2018. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
 
 # Nota Bona
 

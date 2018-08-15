@@ -1,15 +1,26 @@
 # *Caledonian Mercury*, 5 December 1825, p. 1  
   
 ### Content from this page previously appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-17-November-1825-p-1)*Sydney Gazette*, 17 November 1825, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-23-November-1825-p-2)*Aberdeen Journal*, 23 November 1825, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser /Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser -20-December-1823-p-1)*Hobart Town Gazette and Van Diemen's Land Advertiser *, 20 December 1823, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-30-December-1824-p-1)*Australian*, 30 December 1824, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-17-February-1825-p-1)*Sydney Gazette*, 17 February 1825, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser /Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser -1-April-1825-p-1)*Hobart Town Gazette and Van Diemen's Land Advertiser *, 1 April 1825, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-17-November-1825-p-1)*Sydney Gazette*, 17 November 1825, p. 1  
   
 ### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-and-Tasmanian-Advertiser/Colonial-Times-and-Tasmanian-Advertiser-9-December-1825-p-1)*Colonial Times and Tasmanian Advertiser*, 9 December 1825, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-and-Tasmanian-Advertiser/Colonial-Times-and-Tasmanian-Advertiser-9-December-1825-p-1)*Colonial Times and Tasmanian Advertiser*, 9 December 1825, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser /Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser -4-March-1826-p-1)*Hobart Town Gazette and Van Diemen's Land Advertiser *, 4 March 1826, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-9-August-1826-p-1)*Sydney Gazette*, 9 August 1826, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-23-August-1826-p-4)*Sydney Gazette*, 23 August 1826, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-14-December-1825-p-1)*Aberdeen Journal*, 14 December 1825, p. 1  
 
 
 # Citation: 
 
-Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.2.2.* 30 July 2017. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
+Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.1.0.* 14 August 2018. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
 
 # Nota Bona
 
