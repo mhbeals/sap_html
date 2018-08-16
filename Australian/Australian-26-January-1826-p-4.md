@@ -5,7 +5,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-and-Tasmanian-Advertiser/Colonial-Times-and-Tasmanian-Advertiser-6-January-1826-p-4)*Colonial Times and Tasmanian Advertiser*, 6 January 1826, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-16-January-1826-p-4)*Sydney Gazette*, 16 January 1826, p. 4  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-26-January-1826-p-3)*Sydney Gazette*, 26 January 1826, p. 3  
   
 ### Content from this page subsequently appeared in:  

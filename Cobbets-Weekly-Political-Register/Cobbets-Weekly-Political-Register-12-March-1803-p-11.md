@@ -1,6 +1,6 @@
 # *Cobbet's Weekly Political Register*, 12 March 1803, p. 11  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-12-March-1803-p-1)*London Gazette*, 12 March 1803, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-12-March-1803-p-2)*London Gazette*, 12 March 1803, p. 2  
   

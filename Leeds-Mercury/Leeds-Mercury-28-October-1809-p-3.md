@@ -1,6 +1,6 @@
 # *Leeds Mercury*, 28 October 1809, p. 3  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-28-October-1809-p-5)*London Gazette*, 28 October 1809, p. 5  
   
 ### Content from this page subsequently appeared in:  

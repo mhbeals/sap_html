@@ -1,6 +1,6 @@
 # *Sydney Gazette*, 24 March 1825, p. 1  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-24-March-1825-p-1)*Australian*, 24 March 1825, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-24-March-1825-p-4)*Australian*, 24 March 1825, p. 4  
   

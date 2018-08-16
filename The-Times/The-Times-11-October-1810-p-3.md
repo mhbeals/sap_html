@@ -1,9 +1,6 @@
 # *The Times*, 11 October 1810, p. 3  
   
-### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-6-August-1809-p-2)*Sydney Gazette*, 6 August 1809, p. 2  
-  
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-11-October-1810-p-3)*Morning Chronicle*, 11 October 1810, p. 3  
   
 ### Content from this page subsequently appeared in:  

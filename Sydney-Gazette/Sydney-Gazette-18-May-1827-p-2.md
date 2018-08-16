@@ -1,6 +1,6 @@
 # *Sydney Gazette*, 18 May 1827, p. 2  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-18-May-1827-p-3)*Australian*, 18 May 1827, p. 3  
 
 

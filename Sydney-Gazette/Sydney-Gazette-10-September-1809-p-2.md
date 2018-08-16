@@ -1,7 +1,6 @@
 # *Sydney Gazette*, 10 September 1809, p. 2  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-18-August-1808-p-4)*Derby Mercury*, 18 August 1808, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-14-October-1808-p-3)*Morning Chronicle*, 14 October 1808, p. 3  
 
 

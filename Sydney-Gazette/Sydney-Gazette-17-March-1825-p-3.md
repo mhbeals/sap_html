@@ -5,7 +5,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Tasmanian-and-Port-Dalrymple-Advertiser/Tasmanian-and-Port-Dalrymple-Advertiser-23-February-1825-p-2)*Tasmanian and Port Dalrymple Advertiser*, 23 February 1825, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser /Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser -25-February-1825-p-2)*Hobart Town Gazette and Van Diemen's Land Advertiser *, 25 February 1825, p. 2  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-17-March-1825-p-3)*Australian*, 17 March 1825, p. 3  
 
 
