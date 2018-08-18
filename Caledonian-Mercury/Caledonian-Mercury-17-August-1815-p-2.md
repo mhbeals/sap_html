@@ -13,7 +13,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-12-August-1815-p-7)*London Gazette*, 12 August 1815, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-12-August-1815-p-8)*London Gazette*, 12 August 1815, p. 8  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewmans-Exeter-Flying-Post/Trewmans-Exeter-Flying-Post-17-August-1815-p-2)*Trewman's Exeter Flying Post*, 17 August 1815, p. 2  
   
 ### Content from this page subsequently appeared in:  

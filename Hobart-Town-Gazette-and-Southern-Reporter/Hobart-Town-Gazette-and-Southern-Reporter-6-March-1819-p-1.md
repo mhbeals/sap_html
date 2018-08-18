@@ -1,12 +1,7 @@
 # *Hobart Town Gazette and Southern Reporter*, 6 March 1819, p. 1  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-30-January-1818-p-5)*Liverpool Mercury*, 30 January 1818, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-11-April-1818-p-2)*Caledonian Mercury*, 11 April 1818, p. 2  
-  
-### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-24-April-1819-p-2)*Sydney Gazette*, 24 April 1819, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-24-April-1819-p-3)*Sydney Gazette*, 24 April 1819, p. 3  
 
 
 # Citation: 

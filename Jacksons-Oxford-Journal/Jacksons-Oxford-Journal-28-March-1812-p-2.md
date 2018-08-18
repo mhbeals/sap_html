@@ -10,7 +10,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-21-March-1812-p-5)*London Gazette*, 21 March 1812, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-24-March-1812-p-5)*London Gazette*, 24 March 1812, p. 5  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-28-March-1812-p-1)*Ipswich Journal*, 28 March 1812, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-28-March-1812-p-2)*Leeds Mercury*, 28 March 1812, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-28-March-1812-p-10)*London Gazette*, 28 March 1812, p. 10  

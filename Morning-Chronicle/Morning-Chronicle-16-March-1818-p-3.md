@@ -3,10 +3,11 @@
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-7-March-1818-p-3)*Caledonian Mercury*, 7 March 1818, p. 3  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-16-March-1818-p-3)*The Times*, 16 March 1818, p. 3  
   
 ### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-12-December-1818-p-3)*Sydney Gazette*, 12 December 1818, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-17-March-1818-p-3)*The Times*, 17 March 1818, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-20-March-1818-p-8)*Liverpool Mercury*, 20 March 1818, p. 8  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-21-March-1818-p-4)*Jackson's Oxford Journal*, 21 March 1818, p. 4  

@@ -51,6 +51,14 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-25-February-1815-p-1)*Ipswich Journal*, 25 February 1815, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-28-February-1815-p-1)*Hull Packet*, 28 February 1815, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-28-February-1815-p-4)*The Times*, 28 February 1815, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-6-February-1815-p-1)*Morning Chronicle*, 6 February 1815, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-11-February-1815-p-3)*Ipswich Journal*, 11 February 1815, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-13-February-1815-p-3)*The Times*, 13 February 1815, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-18-February-1815-p-1)*Sydney Gazette*, 18 February 1815, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-11-February-1815-p-1)*Sydney Gazette*, 11 February 1815, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-25-February-1815-p-1)*Sydney Gazette*, 25 February 1815, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-4-February-1815-p-3)*Sydney Gazette*, 4 February 1815, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-4-February-1815-p-1)*Sydney Gazette*, 4 February 1815, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-1-February-1815-p-2)*The Times*, 1 February 1815, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-1-February-1815-p-2)*Morning Chronicle*, 1 February 1815, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-1-February-1815-p-3)*The Times*, 1 February 1815, p. 3  
@@ -109,7 +117,6 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-7-February-1815-p-4)*Morning Chronicle*, 7 February 1815, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-11-February-1815-p-1)*Ipswich Journal*, 11 February 1815, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-11-February-1815-p-2)*Ipswich Journal*, 11 February 1815, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-11-February-1815-p-3)*Ipswich Journal*, 11 February 1815, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-10-February-1815-p-1)*The Times*, 10 February 1815, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-11-February-1815-p-1)*The Times*, 11 February 1815, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-11-February-1815-p-3)*The Times*, 11 February 1815, p. 3  
@@ -230,6 +237,29 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-28-February-1815-p-2)*Hull Packet*, 28 February 1815, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-19-February-1815-p-15)*Examiner*, 19 February 1815, p. 15  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-20-February-1815-p-4)*The Times*, 20 February 1815, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-7-February-1815-p-6)*London Gazette*, 7 February 1815, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-4-February-1815-p-14)*London Gazette*, 4 February 1815, p. 14  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-7-February-1815-p-12)*London Gazette*, 7 February 1815, p. 12  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-11-February-1815-p-14)*London Gazette*, 11 February 1815, p. 14  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-11-February-1815-p-15)*London Gazette*, 11 February 1815, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-11-February-1815-p-16)*London Gazette*, 11 February 1815, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-21-February-1815-p-14)*London Gazette*, 21 February 1815, p. 14  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-11-February-1815-p-10)*London Gazette*, 11 February 1815, p. 10  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-18-February-1815-p-6)*London Gazette*, 18 February 1815, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-14-February-1815-p-11)*London Gazette*, 14 February 1815, p. 11  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-14-February-1815-p-12)*London Gazette*, 14 February 1815, p. 12  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-14-February-1815-p-13)*London Gazette*, 14 February 1815, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-18-February-1815-p-21)*London Gazette*, 18 February 1815, p. 21  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-18-February-1815-p-23)*London Gazette*, 18 February 1815, p. 23  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-25-February-1815-p-24)*London Gazette*, 25 February 1815, p. 24  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-25-February-1815-p-25)*London Gazette*, 25 February 1815, p. 25  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-18-February-1815-p-5)*London Gazette*, 18 February 1815, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-23-February-1815-p-1)*The Times*, 23 February 1815, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-25-February-1815-p-13)*London Gazette*, 25 February 1815, p. 13  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-21-February-1815-p-12)*London Gazette*, 21 February 1815, p. 12  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-21-February-1815-p-15)*London Gazette*, 21 February 1815, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-25-February-1815-p-4)*London Gazette*, 25 February 1815, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-21-February-1815-p-21)*London Gazette*, 21 February 1815, p. 21  
 
 
 # Citation: 

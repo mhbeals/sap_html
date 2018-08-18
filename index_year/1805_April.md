@@ -1,4 +1,5 @@
 # Full index of April 1805  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-14-April-1805-p-3)*Sydney Gazette*, 14 April 1805, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-1-April-1805-p-1)*Caledonian Mercury*, 1 April 1805, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-1-April-1805-p-2)*Caledonian Mercury*, 1 April 1805, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-1-April-1805-p-4)*Caledonian Mercury*, 1 April 1805, p. 4  
@@ -77,6 +78,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewmans-Exeter-Flying-Post/Trewmans-Exeter-Flying-Post-25-April-1805-p-3)*Trewman's Exeter Flying Post*, 25 April 1805, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-27-April-1805-p-3)*Caledonian Mercury*, 27 April 1805, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-27-April-1805-p-4)*Jackson's Oxford Journal*, 27 April 1805, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-7-April-1805-p-3)*Sydney Gazette*, 7 April 1805, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-2-April-1805-p-2)*Hull Packet*, 2 April 1805, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-1-April-1805-p-3)*Hampshire Portsmouth Telegraph*, 1 April 1805, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-1-April-1805-p-2)*The Times*, 1 April 1805, p. 2  
@@ -238,6 +240,21 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-22-April-1805-p-1)*Hampshire Portsmouth Telegraph*, 22 April 1805, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-20-April-1805-p-3)*Ipswich Journal*, 20 April 1805, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-27-April-1805-p-3)*The Times*, 27 April 1805, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-6-April-1805-p-19)*London Gazette*, 6 April 1805, p. 19  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-16-April-1805-p-20)*London Gazette*, 16 April 1805, p. 20  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-16-April-1805-p-19)*London Gazette*, 16 April 1805, p. 19  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-9-April-1805-p-17)*London Gazette*, 9 April 1805, p. 17  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-23-April-1805-p-3)*London Gazette*, 23 April 1805, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-23-April-1805-p-4)*London Gazette*, 23 April 1805, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-23-April-1805-p-5)*London Gazette*, 23 April 1805, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-23-April-1805-p-6)*London Gazette*, 23 April 1805, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette-Extraordinary/London-Gazette-Extraordinary-27-April-1805-p-2)*London Gazette Extraordinary*, 27 April 1805, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette-Extraordinary/London-Gazette-Extraordinary-27-April-1805-p-1)*London Gazette Extraordinary*, 27 April 1805, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette-Extraordinary/London-Gazette-Extraordinary-27-April-1805-p-4)*London Gazette Extraordinary*, 27 April 1805, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette-Extraordinary/London-Gazette-Extraordinary-27-April-1805-p-3)*London Gazette Extraordinary*, 27 April 1805, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-27-April-1805-p-5)*London Gazette*, 27 April 1805, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-27-April-1805-p-6)*London Gazette*, 27 April 1805, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-23-April-1805-p-1)*London Gazette*, 23 April 1805, p. 1  
 
 
 # Citation: 

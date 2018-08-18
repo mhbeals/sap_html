@@ -13,7 +13,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-15-June-1811-p-1)*London Gazette*, 15 June 1811, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-15-June-1811-p-2)*London Gazette*, 15 June 1811, p. 2  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-20-June-1811-p-2)*Derby Mercury*, 20 June 1811, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-20-June-1811-p-4)*Derby Mercury*, 20 June 1811, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewmans-Exeter-Flying-Post/Trewmans-Exeter-Flying-Post-20-June-1811-p-2)*Trewman's Exeter Flying Post*, 20 June 1811, p. 2  

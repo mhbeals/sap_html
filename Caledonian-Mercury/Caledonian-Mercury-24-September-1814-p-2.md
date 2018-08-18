@@ -8,7 +8,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette-Extraordinary/London-Gazette-Extraordinary-20-September-1814-p-2)*London Gazette Extraordinary*, 20 September 1814, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette-Extraordinary/London-Gazette-Extraordinary-20-September-1814-p-3)*London Gazette Extraordinary*, 20 September 1814, p. 3  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-24-September-1814-p-9)*Cobbet's Weekly Political Register*, 24 September 1814, p. 9  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-24-September-1814-p-2)*Jackson's Oxford Journal*, 24 September 1814, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-24-September-1814-p-2)*Leeds Mercury*, 24 September 1814, p. 2  

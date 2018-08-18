@@ -1,6 +1,7 @@
 # *London Gazette*, 7 June 1814, p. 3  
   
 ### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-19-April-1815-p-1)*Sydney Gazette*, 19 April 1815, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-10-June-1814-p-1)*Liverpool Mercury*, 10 June 1814, p. 1  
 
 

@@ -1,14 +1,12 @@
 # *Caledonian Mercury*, 11 December 1819, p. 4  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-2-January-1819-p-2)*Sydney Gazette*, 2 January 1819, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Southern-Reporter/Hobart-Town-Gazette-and-Southern-Reporter-23-January-1819-p-1)*Hobart Town Gazette and Southern Reporter*, 23 January 1819, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-6-December-1819-p-2)*Morning Chronicle*, 6 December 1819, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-6-December-1819-p-3)*Morning Chronicle*, 6 December 1819, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-6-December-1819-p-3)*The Times*, 6 December 1819, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewmans-Exeter-Flying-Post/Trewmans-Exeter-Flying-Post-9-December-1819-p-3)*Trewman's Exeter Flying Post*, 9 December 1819, p. 3  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-11-December-1819-p-4)*Jackson's Oxford Journal*, 11 December 1819, p. 4  
 
 

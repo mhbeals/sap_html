@@ -1,8 +1,6 @@
 # *Sydney Gazette*, 22 August 1818, p. 4  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-13-August-1817-p-3)*The Times*, 13 August 1817, p. 3  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-21-August-1817-p-4)*Caledonian Mercury*, 21 August 1817, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-9-September-1817-p-4)*Hull Packet*, 9 September 1817, p. 4  
 
 

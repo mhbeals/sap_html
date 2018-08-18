@@ -9,6 +9,7 @@
   
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-10-January-1818-p-3)*Sydney Gazette*, 10 January 1818, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Southern-Reporter/Hobart-Town-Gazette-and-Southern-Reporter-30-May-1818-p-2)*Hobart Town Gazette and Southern Reporter*, 30 May 1818, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-28-June-1817-p-4)*Jackson's Oxford Journal*, 28 June 1817, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-28-June-1817-p-4)*Leeds Mercury*, 28 June 1817, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-1-July-1817-p-1)*Hull Packet*, 1 July 1817, p. 1  

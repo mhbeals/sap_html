@@ -9,10 +9,12 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-28-September-1819-p-3)*Morning Chronicle*, 28 September 1819, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-28-September-1819-p-3)*The Times*, 28 September 1819, p. 3  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-4-October-1819-p-4)*Bristol Mercury*, 4 October 1819, p. 4  
   
 ### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Southern-Reporter/Hobart-Town-Gazette-and-Southern-Reporter-26-August-1820-p-2)*Hobart Town Gazette and Southern Reporter*, 26 August 1820, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-16-September-1820-p-3)*Sydney Gazette*, 16 September 1820, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-8-October-1819-p-3)*Liverpool Mercury*, 8 October 1819, p. 3  
 
 

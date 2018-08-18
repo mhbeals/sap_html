@@ -1,5 +1,9 @@
 # *London Gazette*, 2 March 1811, p. 21  
   
+### Content from this page previously appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-9-February-1811-p-4)*Leeds Mercury*, 9 February 1811, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-23-February-1811-p-4)*Leeds Mercury*, 23 February 1811, p. 4  
+  
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-23-March-1811-p-4)*Leeds Mercury*, 23 March 1811, p. 4  
 

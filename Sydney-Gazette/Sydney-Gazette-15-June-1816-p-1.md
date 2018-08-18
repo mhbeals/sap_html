@@ -1,7 +1,6 @@
 # *Sydney Gazette*, 15 June 1816, p. 1  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewmans-Exeter-Flying-Post/Trewmans-Exeter-Flying-Post-9-June-1814-p-2)*Trewman's Exeter Flying Post*, 9 June 1814, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-24-July-1815-p-2)*Caledonian Mercury*, 24 July 1815, p. 2  
 
 

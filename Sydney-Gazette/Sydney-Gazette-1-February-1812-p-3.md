@@ -1,9 +1,9 @@
 # *Sydney Gazette*, 1 February 1812, p. 3  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-30-July-1811-p-2)*The Times*, 30 July 1811, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-3-August-1811-p-2)*Caledonian Mercury*, 3 August 1811, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cobbets-Weekly-Political-Register/Cobbets-Weekly-Political-Register-3-August-1811-p-15)*Cobbet's Weekly Political Register*, 3 August 1811, p. 15  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-30-July-1811-p-2)*The Times*, 30 July 1811, p. 2  
 
 
 # Citation: 

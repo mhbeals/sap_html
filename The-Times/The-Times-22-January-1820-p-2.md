@@ -2,29 +2,24 @@
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-8-January-1820-p-2)*Sydney Gazette*, 8 January 1820, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Southern-Reporter/Hobart-Town-Gazette-and-Southern-Reporter-7-February-1818-p-2)*Hobart Town Gazette and Southern Reporter*, 7 February 1818, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Southern-Reporter/Hobart-Town-Gazette-and-Southern-Reporter-14-February-1818-p-1)*Hobart Town Gazette and Southern Reporter*, 14 February 1818, p. 1  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-14-February-1818-p-2)*Sydney Gazette*, 14 February 1818, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-14-March-1818-p-1)*Sydney Gazette*, 14 March 1818, p. 1  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-28-November-1818-p-2)*Sydney Gazette*, 28 November 1818, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-24-April-1819-p-1)*Sydney Gazette*, 24 April 1819, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Southern-Reporter/Hobart-Town-Gazette-and-Southern-Reporter-12-June-1819-p-1)*Hobart Town Gazette and Southern Reporter*, 12 June 1819, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-1-May-1819-p-2)*Sydney Gazette*, 1 May 1819, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-8-May-1819-p-2)*Sydney Gazette*, 8 May 1819, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Southern-Reporter/Hobart-Town-Gazette-and-Southern-Reporter-15-May-1819-p-1)*Hobart Town Gazette and Southern Reporter*, 15 May 1819, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-15-May-1819-p-1)*Sydney Gazette*, 15 May 1819, p. 1  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Southern-Reporter/Hobart-Town-Gazette-and-Southern-Reporter-12-June-1819-p-1)*Hobart Town Gazette and Southern Reporter*, 12 June 1819, p. 1  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-8-January-1820-p-2)*Sydney Gazette*, 8 January 1820, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-8-January-1820-p-3)*Jackson's Oxford Journal*, 8 January 1820, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-8-January-1820-p-1)*Newcastle Courant*, 8 January 1820, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewmans-Exeter-Flying-Post/Trewmans-Exeter-Flying-Post-13-January-1820-p-4)*Trewman's Exeter Flying Post*, 13 January 1820, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-15-January-1820-p-2)*Jackson's Oxford Journal*, 15 January 1820, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-15-January-1820-p-3)*Jackson's Oxford Journal*, 15 January 1820, p. 3  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-22-January-1820-p-3)*Jackson's Oxford Journal*, 22 January 1820, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-22-January-1820-p-1)*Newcastle Courant*, 22 January 1820, p. 1  
   
 ### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-11-November-1820-p-1)*Sydney Gazette*, 11 November 1820, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Southern-Reporter/Hobart-Town-Gazette-and-Southern-Reporter-30-December-1820-p-1)*Hobart Town Gazette and Southern Reporter*, 30 December 1820, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-23-January-1820-p-4)*Examiner*, 23 January 1820, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-23-January-1820-p-7)*Examiner*, 23 January 1820, p. 7  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-23-January-1820-p-14)*Examiner*, 23 January 1820, p. 14  

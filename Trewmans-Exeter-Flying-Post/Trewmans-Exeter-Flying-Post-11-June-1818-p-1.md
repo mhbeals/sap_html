@@ -1,6 +1,6 @@
 # *Trewman's Exeter Flying Post*, 11 June 1818, p. 1  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-11-June-1818-p-2)*Derby Mercury*, 11 June 1818, p. 2  
   
 ### Content from this page subsequently appeared in:  

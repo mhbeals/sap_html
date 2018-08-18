@@ -2,6 +2,9 @@
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Southern-Reporter/Hobart-Town-Gazette-and-Southern-Reporter-9-January-1819-p-1)*Hobart Town Gazette and Southern Reporter*, 9 January 1819, p. 1  
+  
+### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Southern-Reporter/Hobart-Town-Gazette-and-Southern-Reporter-3-April-1819-p-1)*Hobart Town Gazette and Southern Reporter*, 3 April 1819, p. 1  
 
 
 # Citation: 

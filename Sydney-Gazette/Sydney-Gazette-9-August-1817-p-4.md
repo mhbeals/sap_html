@@ -1,8 +1,8 @@
 # *Sydney Gazette*, 9 August 1817, p. 4  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-24-February-1817-p-3)*Morning Chronicle*, 24 February 1817, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-2-March-1817-p-16)*Examiner*, 2 March 1817, p. 16  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-24-February-1817-p-3)*Morning Chronicle*, 24 February 1817, p. 3  
 
 
 # Citation: 

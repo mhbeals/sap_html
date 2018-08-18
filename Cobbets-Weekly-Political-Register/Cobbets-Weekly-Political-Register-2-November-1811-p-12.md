@@ -2,6 +2,9 @@
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-29-October-1811-p-3)*The Times*, 29 October 1811, p. 3  
+  
+### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-5-November-1811-p-4)*Hull Packet*, 5 November 1811, p. 4  
 
 
 # Citation: 

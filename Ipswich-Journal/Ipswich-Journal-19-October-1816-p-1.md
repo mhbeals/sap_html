@@ -1,6 +1,6 @@
 # *Ipswich Journal*, 19 October 1816, p. 1  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-19-October-1816-p-4)*Jackson's Oxford Journal*, 19 October 1816, p. 4  
 
 

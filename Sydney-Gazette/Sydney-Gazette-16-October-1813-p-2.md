@@ -1,8 +1,8 @@
 # *Sydney Gazette*, 16 October 1813, p. 2  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-24-April-1813-p-2)*The Times*, 24 April 1813, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-24-June-1813-p-2)*Derby Mercury*, 24 June 1813, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-24-April-1813-p-2)*The Times*, 24 April 1813, p. 2  
 
 
 # Citation: 

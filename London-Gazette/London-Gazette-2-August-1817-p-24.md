@@ -1,6 +1,6 @@
 # *London Gazette*, 2 August 1817, p. 24  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-2-August-1817-p-1)*Leeds Mercury*, 2 August 1817, p. 1  
 
 

@@ -1,7 +1,6 @@
 # *Trewman's Exeter Flying Post*, 20 May 1813, p. 3  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-20-April-1811-p-2)*Sydney Gazette*, 20 April 1811, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-8-May-1813-p-3)*Ipswich Journal*, 8 May 1813, p. 3  
   
 ### Content from this page subsequently appeared in:  

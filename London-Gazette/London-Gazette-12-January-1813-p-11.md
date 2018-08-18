@@ -1,7 +1,6 @@
 # *London Gazette*, 12 January 1813, p. 11  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-4-January-1812-p-1)*Sydney Gazette*, 4 January 1812, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-18-July-1812-p-1)*Sydney Gazette*, 18 July 1812, p. 1  
 
 

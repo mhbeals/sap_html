@@ -9,7 +9,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette-Extraordinary/London-Gazette-Extraordinary-5-April-1814-p-5)*London Gazette Extraordinary*, 5 April 1814, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette-Extraordinary/London-Gazette-Extraordinary-5-April-1814-p-6)*London Gazette Extraordinary*, 5 April 1814, p. 6  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-9-April-1814-p-2)*Jackson's Oxford Journal*, 9 April 1814, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-9-April-1814-p-2)*Leeds Mercury*, 9 April 1814, p. 2  
   

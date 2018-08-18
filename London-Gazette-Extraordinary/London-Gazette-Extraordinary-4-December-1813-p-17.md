@@ -1,6 +1,6 @@
 # *London Gazette Extraordinary*, 4 December 1813, p. 17  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-4-December-1813-p-4)*Leeds Mercury*, 4 December 1813, p. 4  
 
 

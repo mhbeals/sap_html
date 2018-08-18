@@ -6,7 +6,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-14-December-1813-p-32)*London Gazette*, 14 December 1813, p. 32  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette-Extraordinary/London-Gazette-Extraordinary-21-December-1813-p-14)*London Gazette Extraordinary*, 21 December 1813, p. 14  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette-Extraordinary/London-Gazette-Extraordinary-1-January-1814-p-20)*London Gazette Extraordinary*, 1 January 1814, p. 20  
   
 ### Content from this page subsequently appeared in:  

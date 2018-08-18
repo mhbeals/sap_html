@@ -7,7 +7,7 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-15-August-1815-p-13)*London Gazette*, 15 August 1815, p. 13  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette/London-Gazette-15-August-1815-p-14)*London Gazette*, 15 August 1815, p. 14  
   
-### Content from this page simeltaneously appeared in:  
+### Content from this page simultaneously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=London-Gazette-Extraordinary/London-Gazette-Extraordinary-19-August-1815-p-16)*London Gazette Extraordinary*, 19 August 1815, p. 16  
   
 ### Content from this page subsequently appeared in:  

@@ -1,5 +1,8 @@
 # *Caledonian Mercury*, 9 December 1811, p. 1  
   
+### Content from this page previously appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-27-November-1811-p-4)*Aberdeen Journal*, 27 November 1811, p. 4  
+  
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Jacksons-Oxford-Journal/Jacksons-Oxford-Journal-14-December-1811-p-2)*Jackson's Oxford Journal*, 14 December 1811, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-18-December-1811-p-4)*Aberdeen Journal*, 18 December 1811, p. 4  

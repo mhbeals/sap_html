@@ -1,9 +1,5 @@
 # *The Times*, 22 March 1820, p. 2  
   
-### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Southern-Reporter/Hobart-Town-Gazette-and-Southern-Reporter-7-February-1818-p-2)*Hobart Town Gazette and Southern Reporter*, 7 February 1818, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Southern-Reporter/Hobart-Town-Gazette-and-Southern-Reporter-14-February-1818-p-1)*Hobart Town Gazette and Southern Reporter*, 14 February 1818, p. 1  
-  
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trewmans-Exeter-Flying-Post/Trewmans-Exeter-Flying-Post-23-March-1820-p-2)*Trewman's Exeter Flying Post*, 23 March 1820, p. 2  
 

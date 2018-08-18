@@ -2,6 +2,9 @@
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-28-June-1816-p-8)*Liverpool Mercury*, 28 June 1816, p. 8  
+  
+### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-5-April-1817-p-2)*Sydney Gazette*, 5 April 1817, p. 2  
 
 
 # Citation: 
