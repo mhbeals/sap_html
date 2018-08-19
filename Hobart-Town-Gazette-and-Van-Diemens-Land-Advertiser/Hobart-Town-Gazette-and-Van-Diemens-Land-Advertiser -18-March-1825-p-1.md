@@ -6,12 +6,12 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Tasmanian-and-Port-Dalrymple-Advertiser/Tasmanian-and-Port-Dalrymple-Advertiser-16-March-1825-p-3)*Tasmanian and Port Dalrymple Advertiser*, 16 March 1825, p. 3  
   
 ### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-19-September-1825-p-2)*Morning Chronicle*, 19 September 1825, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-22-September-1825-p-2)*Caledonian Mercury*, 22 September 1825, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Tasmanian-and-Port-Dalrymple-Advertiser/Tasmanian-and-Port-Dalrymple-Advertiser-6-April-1825-p-1)*Tasmanian and Port Dalrymple Advertiser*, 6 April 1825, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Tasmanian-and-Port-Dalrymple-Advertiser/Tasmanian-and-Port-Dalrymple-Advertiser-13-April-1825-p-1)*Tasmanian and Port Dalrymple Advertiser*, 13 April 1825, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Tasmanian-and-Port-Dalrymple-Advertiser/Tasmanian-and-Port-Dalrymple-Advertiser-20-April-1825-p-1)*Tasmanian and Port Dalrymple Advertiser*, 20 April 1825, p. 1  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Tasmanian-and-Port-Dalrymple-Advertiser/Tasmanian-and-Port-Dalrymple-Advertiser-27-April-1825-p-1)*Tasmanian and Port Dalrymple Advertiser*, 27 April 1825, p. 1  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-19-September-1825-p-2)*Morning Chronicle*, 19 September 1825, p. 2  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-22-September-1825-p-2)*Caledonian Mercury*, 22 September 1825, p. 2  
 
 
 # Citation: 

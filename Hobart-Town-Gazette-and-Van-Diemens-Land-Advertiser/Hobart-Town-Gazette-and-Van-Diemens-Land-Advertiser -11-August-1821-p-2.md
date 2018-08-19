@@ -1,7 +1,6 @@
 # *Hobart Town Gazette and Van Diemen's Land Advertiser *, 11 August 1821, p. 2  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-1-May-1820-p-3)*The Times*, 1 May 1820, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-28-April-1821-p-2)*Caledonian Mercury*, 28 April 1821, p. 2  
 
 

@@ -1,5 +1,8 @@
 # *The Times*, 5 January 1821, p. 2  
   
+### Content from this page previously appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-23-December-1820-p-1)*Ipswich Journal*, 23 December 1820, p. 1  
+  
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Freemans-Journal/Freemans-Journal-9-January-1821-p-2)*Freeman's Journal*, 9 January 1821, p. 2  
 

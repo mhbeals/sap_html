@@ -1,9 +1,5 @@
 # *Hobart Town Gazette and Van Diemen's Land Advertiser *, 23 January 1824, p. 2  
   
-### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-15-November-1822-p-1)*Glasgow Herald*, 15 November 1822, p. 1  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-22-November-1822-p-7)*Liverpool Mercury*, 22 November 1822, p. 7  
-  
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-5-February-1824-p-2)*Sydney Gazette*, 5 February 1824, p. 2  
 

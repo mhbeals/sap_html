@@ -1,8 +1,5 @@
 # *Morning Chronicle*, 29 April 1824, p. 4  
   
-### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-19-April-1822-p-1)*Sydney Gazette*, 19 April 1822, p. 1  
-  
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-6-May-1824-p-3)*The Times*, 6 May 1824, p. 3  
 

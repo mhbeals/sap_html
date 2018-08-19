@@ -1,7 +1,6 @@
 # *Hobart Town Gazette and Van Diemen's Land Advertiser *, 19 November 1824, p. 3  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-10-September-1823-p-4)*Derby Mercury*, 10 September 1823, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-8-December-1823-p-4)*Bristol Mercury*, 8 December 1823, p. 4  
 
 

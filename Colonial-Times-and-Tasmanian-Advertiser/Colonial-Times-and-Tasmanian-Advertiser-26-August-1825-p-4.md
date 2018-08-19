@@ -1,7 +1,6 @@
 # *Colonial Times and Tasmanian Advertiser*, 26 August 1825, p. 4  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-14-July-1825-p-2)*Australian*, 14 July 1825, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-21-July-1825-p-2)*Sydney Gazette*, 21 July 1825, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-28-July-1825-p-2)*Sydney Gazette*, 28 July 1825, p. 2  
 

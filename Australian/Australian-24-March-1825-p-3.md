@@ -1,8 +1,8 @@
 # *Australian*, 24 March 1825, p. 3  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Tasmanian-and-Port-Dalrymple-Advertiser/Tasmanian-and-Port-Dalrymple-Advertiser-13-April-1825-p-3)*Tasmanian and Port Dalrymple Advertiser*, 13 April 1825, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-19-September-1825-p-2)*The Times*, 19 September 1825, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Tasmanian-and-Port-Dalrymple-Advertiser/Tasmanian-and-Port-Dalrymple-Advertiser-13-April-1825-p-3)*Tasmanian and Port Dalrymple Advertiser*, 13 April 1825, p. 3  
 
 
 # Citation: 

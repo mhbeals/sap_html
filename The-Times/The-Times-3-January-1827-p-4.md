@@ -1,8 +1,5 @@
 # *The Times*, 3 January 1827, p. 4  
   
-### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-8-February-1826-p-3)*Sydney Gazette*, 8 February 1826, p. 3  
-  
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-25-June-1827-p-3)*Sydney Gazette*, 25 June 1827, p. 3  
 

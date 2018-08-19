@@ -1,8 +1,8 @@
 # *Colonial Times and Tasmanian Advertiser*, 19 August 1825, p. 3  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-22-September-1825-p-2)*Australian*, 22 September 1825, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-16-December-1825-p-7)*Liverpool Mercury*, 16 December 1825, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-22-September-1825-p-2)*Australian*, 22 September 1825, p. 2  
 
 
 # Citation: 

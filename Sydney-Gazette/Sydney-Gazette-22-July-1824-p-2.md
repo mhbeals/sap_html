@@ -1,7 +1,6 @@
 # *Sydney Gazette*, 22 July 1824, p. 2  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser /Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser -4-June-1824-p-2)*Hobart Town Gazette and Van Diemen's Land Advertiser *, 4 June 1824, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser /Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser -11-June-1824-p-2)*Hobart Town Gazette and Van Diemen's Land Advertiser *, 11 June 1824, p. 2  
 
 

@@ -1,5 +1,8 @@
 # *London Gazette*, 11 August 1821, p. 15  
   
+### Content from this page previously appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-21-July-1821-p-4)*Leeds Mercury*, 21 July 1821, p. 4  
+  
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-1-September-1821-p-4)*Leeds Mercury*, 1 September 1821, p. 4  
 

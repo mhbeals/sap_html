@@ -1,8 +1,5 @@
 # *Australian*, 12 October 1827, p. 4  
   
-### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-29-March-1826-p-3)*The Times*, 29 March 1826, p. 3  
-  
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Tasmanian/Tasmanian-16-November-1827-p-4)*Tasmanian*, 16 November 1827, p. 4  
 

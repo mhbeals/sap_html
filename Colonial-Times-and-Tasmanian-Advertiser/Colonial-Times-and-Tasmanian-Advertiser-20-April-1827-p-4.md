@@ -1,8 +1,5 @@
 # *Colonial Times and Tasmanian Advertiser*, 20 April 1827, p. 4  
   
-### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-1-March-1827-p-2)*Australian*, 1 March 1827, p. 2  
-  
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-7-May-1827-p-2)*Sydney Gazette*, 7 May 1827, p. 2  
 

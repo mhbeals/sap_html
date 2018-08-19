@@ -1,8 +1,5 @@
 # *Australian*, 26 January 1826, p. 2  
   
-### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-and-Tasmanian-Advertiser/Colonial-Times-and-Tasmanian-Advertiser-9-December-1825-p-4)*Colonial Times and Tasmanian Advertiser*, 9 December 1825, p. 4  
-  
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-and-Tasmanian-Advertiser/Colonial-Times-and-Tasmanian-Advertiser-10-February-1826-p-4)*Colonial Times and Tasmanian Advertiser*, 10 February 1826, p. 4  
 

@@ -1,5 +1,8 @@
 # *The Times*, 2 April 1827, p. 4  
   
+### Content from this page previously appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-31-March-1827-p-4)*Morning Chronicle*, 31 March 1827, p. 4  
+  
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-15-August-1827-p-4)*Sydney Gazette*, 15 August 1827, p. 4  
 

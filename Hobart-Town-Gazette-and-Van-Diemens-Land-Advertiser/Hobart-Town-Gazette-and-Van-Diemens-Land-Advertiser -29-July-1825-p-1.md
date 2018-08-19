@@ -1,8 +1,8 @@
 # *Hobart Town Gazette and Van Diemen's Land Advertiser *, 29 July 1825, p. 1  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-18-August-1825-p-2)*Australian*, 18 August 1825, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-29-March-1826-p-4)*The Times*, 29 March 1826, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-18-August-1825-p-2)*Australian*, 18 August 1825, p. 2  
 
 
 # Citation: 

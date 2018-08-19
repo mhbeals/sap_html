@@ -1,8 +1,8 @@
 # *Hobart Town Gazette and Van Diemen's Land Advertiser *, 13 December 1823, p. 2  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-31-March-1823-p-4)*Hull Packet*, 31 March 1823, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-31-May-1823-p-4)*Ipswich Journal*, 31 May 1823, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-31-March-1823-p-4)*Hull Packet*, 31 March 1823, p. 4  
 
 
 # Citation: 

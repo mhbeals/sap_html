@@ -1,8 +1,5 @@
 # *Sydney Gazette*, 24 November 1821, p. 1  
   
-### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser /Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser -6-October-1821-p-1)*Hobart Town Gazette and Van Diemen's Land Advertiser *, 6 October 1821, p. 1  
-  
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser /Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser -8-December-1821-p-1)*Hobart Town Gazette and Van Diemen's Land Advertiser *, 8 December 1821, p. 1  
 
