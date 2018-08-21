@@ -1,0 +1,39 @@
+# *Commercial Journal and Advertiser*, 24 January 1838, p. 2  
+  
+### Content from this page previously appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Monitor/Sydney-Monitor-13-December-1837-p-2)*Sydney Monitor*, 13 December 1837, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-16-December-1837-p-3)*Sydney General Trade List*, 16 December 1837, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-16-December-1837-p-2)*Sydney Gazette*, 16 December 1837, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-23-December-1837-p-2)*Sydney General Trade List*, 23 December 1837, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-30-December-1837-p-2)*Sydney General Trade List*, 30 December 1837, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-6-January-1838-p-2)*Sydney General Trade List*, 6 January 1838, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-13-January-1838-p-2)*Sydney General Trade List*, 13 January 1838, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-17-January-1838-p-1)*Colonist of Sydney*, 17 January 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-20-January-1838-p-1)*Sydney General Trade List*, 20 January 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-22-January-1838-p-2)*Sydney Herald*, 22 January 1838, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-23-January-1838-p-2)*Australian*, 23 January 1838, p. 2  
+  
+### Content from this page simultaneously appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-24-January-1838-p-3)*Colonist of Sydney*, 24 January 1838, p. 3  
+  
+### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-27-January-1838-p-3)*Sydney General Trade List*, 27 January 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-31-January-1838-p-3)*Colonist of Sydney*, 31 January 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-3-February-1838-p-3)*Sydney General Trade List*, 3 February 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-3-February-1838-p-1)*Colonist of Sydney*, 3 February 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-5-February-1838-p-2)*Sydney Herald*, 5 February 1838, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-10-February-1838-p-3)*Sydney General Trade List*, 10 February 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-17-February-1838-p-2)*Sydney General Trade List*, 17 February 1838, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-24-February-1838-p-2)*Sydney General Trade List*, 24 February 1838, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-28-February-1838-p-3)*Colonist of Sydney*, 28 February 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-3-March-1838-p-3)*Sydney General Trade List*, 3 March 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-5-March-1838-p-3)*Sydney Herald*, 5 March 1838, p. 3  
+
+
+# Citation: 
+
+Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.1.0.* 14 August 2018. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
+
+# Nota Bona
+
+Bibliometric data is time consuming to produce but benefits us all. Please remember to cite or acknowledge this and any other bibliometric data you use in your research. All data is available CC-BY 4.0 at [https://github.com/mhbeals/sap_reprints](https://github.com/mhbeals/sap_reprints)

@@ -1,7 +1,7 @@
 # *Examiner*, 24 June 1827, p. 16  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-25-June-1827-p-1)*The Times*, 25 June 1827, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Times/Times-25-June-1827-p-1)*Times*, 25 June 1827, p. 1  
 
 
 # Citation: 

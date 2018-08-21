@@ -1,4 +1,4 @@
-# *Trewman's Exeter Flying Post*, 28 June 1827, p. 2  
+# *Trewmans Exeter Flying Post*, 28 June 1827, p. 2  
   
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-14-July-1827-p-3)*Newcastle Courant*, 14 July 1827, p. 3  

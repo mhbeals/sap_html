@@ -1,4 +1,4 @@
-# *Hobart Town Gazette and Van Diemen's Land Advertiser *, 15 September 1827, p. 9  
+# *Hobart Town Gazette and Van Diemens Land Advertiser *, 15 September 1827, p. 9  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-and-Tasmanian-Advertiser/Colonial-Times-and-Tasmanian-Advertiser-31-August-1827-p-4)*Colonial Times and Tasmanian Advertiser*, 31 August 1827, p. 4  

@@ -1,7 +1,7 @@
 # *Liverpool Mercury*, 7 September 1827, p. 3  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-1-September-1827-p-3)*The Times*, 1 September 1827, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Times/Times-1-September-1827-p-3)*Times*, 1 September 1827, p. 3  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-4-September-1827-p-2)*Morning Chronicle*, 4 September 1827, p. 2  
   
 ### Content from this page subsequently appeared in:  

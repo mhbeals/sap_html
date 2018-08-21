@@ -1,7 +1,7 @@
 # *Morning Chronicle*, 9 May 1827, p. 4  
   
 ### Content from this page simultaneously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-9-May-1827-p-4)*The Times*, 9 May 1827, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Times/Times-9-May-1827-p-4)*Times*, 9 May 1827, p. 4  
 
 
 # Citation: 

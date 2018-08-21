@@ -1,4 +1,4 @@
-# *Cobbet's Weekly Political Register*, 28 July 1827, p. 29  
+# *Cobbets Weekly Political Register*, 28 July 1827, p. 29  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-23-July-1827-p-4)*Bristol Mercury*, 23 July 1827, p. 4  

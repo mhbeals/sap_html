@@ -1,4 +1,4 @@
-# *Trewman's Exeter Flying Post*, 25 January 1827, p. 3  
+# *Trewmans Exeter Flying Post*, 25 January 1827, p. 3  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hull-Packet/Hull-Packet-23-January-1827-p-2)*Hull Packet*, 23 January 1827, p. 2  

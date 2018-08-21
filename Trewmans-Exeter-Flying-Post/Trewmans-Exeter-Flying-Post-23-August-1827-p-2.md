@@ -1,4 +1,4 @@
-# *Trewman's Exeter Flying Post*, 23 August 1827, p. 2  
+# *Trewmans Exeter Flying Post*, 23 August 1827, p. 2  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-19-August-1827-p-13)*Examiner*, 19 August 1827, p. 13  

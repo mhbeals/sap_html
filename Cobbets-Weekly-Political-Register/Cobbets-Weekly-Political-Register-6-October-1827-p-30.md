@@ -1,4 +1,4 @@
-# *Cobbet's Weekly Political Register*, 6 October 1827, p. 30  
+# *Cobbets Weekly Political Register*, 6 October 1827, p. 30  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Newcastle-Courant/Newcastle-Courant-15-September-1827-p-1)*Newcastle Courant*, 15 September 1827, p. 1  

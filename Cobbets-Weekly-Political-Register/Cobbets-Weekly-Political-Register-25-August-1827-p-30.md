@@ -1,4 +1,4 @@
-# *Cobbet's Weekly Political Register*, 25 August 1827, p. 30  
+# *Cobbets Weekly Political Register*, 25 August 1827, p. 30  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-10-August-1827-p-5)*Liverpool Mercury*, 10 August 1827, p. 5  

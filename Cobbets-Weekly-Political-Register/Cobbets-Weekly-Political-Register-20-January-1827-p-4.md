@@ -1,4 +1,4 @@
-# *Cobbet's Weekly Political Register*, 20 January 1827, p. 4  
+# *Cobbets Weekly Political Register*, 20 January 1827, p. 4  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Aberdeen-Journal/Aberdeen-Journal-10-January-1827-p-4)*Aberdeen Journal*, 10 January 1827, p. 4  

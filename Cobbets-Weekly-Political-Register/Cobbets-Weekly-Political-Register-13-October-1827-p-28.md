@@ -1,4 +1,4 @@
-# *Cobbet's Weekly Political Register*, 13 October 1827, p. 28  
+# *Cobbets Weekly Political Register*, 13 October 1827, p. 28  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-29-September-1827-p-4)*Ipswich Journal*, 29 September 1827, p. 4  

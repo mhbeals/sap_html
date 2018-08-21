@@ -1,4 +1,4 @@
-# *Trewman's Exeter Flying Post*, 12 July 1827, p. 2  
+# *Trewmans Exeter Flying Post*, 12 July 1827, p. 2  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Derby-Mercury/Derby-Mercury-27-June-1827-p-4)*Derby Mercury*, 27 June 1827, p. 4  

@@ -1,4 +1,4 @@
-# *Hobart Town Gazette and Van Diemen's Land Advertiser *, 24 February 1827, p. 2  
+# *Hobart Town Gazette and Van Diemens Land Advertiser *, 24 February 1827, p. 2  
   
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-17-March-1827-p-2)*Australian*, 17 March 1827, p. 2  

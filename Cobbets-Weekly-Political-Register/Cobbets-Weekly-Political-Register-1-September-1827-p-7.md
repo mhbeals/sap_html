@@ -1,4 +1,4 @@
-# *Cobbet's Weekly Political Register*, 1 September 1827, p. 7  
+# *Cobbets Weekly Political Register*, 1 September 1827, p. 7  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-27-August-1827-p-2)*Morning Chronicle*, 27 August 1827, p. 2  

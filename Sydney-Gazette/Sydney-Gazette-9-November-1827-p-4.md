@@ -1,7 +1,7 @@
 # *Sydney Gazette*, 9 November 1827, p. 4  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-15-June-1827-p-5)*The Times*, 15 June 1827, p. 5  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Times/Times-15-June-1827-p-5)*Times*, 15 June 1827, p. 5  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-7-November-1827-p-1)*Australian*, 7 November 1827, p. 1  
   
 ### Content from this page subsequently appeared in:  

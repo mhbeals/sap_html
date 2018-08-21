@@ -1,7 +1,7 @@
-# *Hobart Town Gazette and Van Diemen's Land Advertiser *, 13 October 1827, p. 3  
+# *Hobart Town Gazette and Van Diemens Land Advertiser *, 13 October 1827, p. 3  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Courier/Hobart-Town-Courier-20-October-1827-p-1)*Hobart Town Courier*, 20 October 1827, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Courier-and-Van-Diemens-Land-Gazette/Hobart-Town-Courier-and-Van-Diemens-Land-Gazette-20-October-1827-p-1)*Hobart Town Courier and Van Diemens Land Gazette*, 20 October 1827, p. 1  
 
 
 # Citation: 

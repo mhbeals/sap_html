@@ -1,4 +1,4 @@
-# *Hobart Town Gazette and Van Diemen's Land Advertiser *, 13 October 1827, p. 8  
+# *Hobart Town Gazette and Van Diemens Land Advertiser *, 13 October 1827, p. 8  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-and-Tasmanian-Advertiser/Colonial-Times-and-Tasmanian-Advertiser-5-October-1827-p-1)*Colonial Times and Tasmanian Advertiser*, 5 October 1827, p. 1  
@@ -6,8 +6,8 @@
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-and-Tasmanian-Advertiser/Colonial-Times-and-Tasmanian-Advertiser-12-October-1827-p-1)*Colonial Times and Tasmanian Advertiser*, 12 October 1827, p. 1  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Courier/Hobart-Town-Courier-20-October-1827-p-1)*Hobart Town Courier*, 20 October 1827, p. 1  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Courier/Hobart-Town-Courier-20-October-1827-p-2)*Hobart Town Courier*, 20 October 1827, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Courier-and-Van-Diemens-Land-Gazette/Hobart-Town-Courier-and-Van-Diemens-Land-Gazette-20-October-1827-p-1)*Hobart Town Courier and Van Diemens Land Gazette*, 20 October 1827, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Courier-and-Van-Diemens-Land-Gazette/Hobart-Town-Courier-and-Van-Diemens-Land-Gazette-20-October-1827-p-2)*Hobart Town Courier and Van Diemens Land Gazette*, 20 October 1827, p. 2  
 
 
 # Citation: 

@@ -1,7 +1,7 @@
 # *Australian*, 31 August 1827, p. 4  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-26-January-1827-p-4)*The Times*, 26 January 1827, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Times/Times-26-January-1827-p-4)*Times*, 26 January 1827, p. 4  
 
 
 # Citation: 

@@ -1,7 +1,7 @@
 # *Sydney Gazette*, 31 December 1827, p. 2  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Courier/Hobart-Town-Courier-19-January-1828-p-3)*Hobart Town Courier*, 19 January 1828, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Courier-and-Van-Diemens-Land-Gazette/Hobart-Town-Courier-and-Van-Diemens-Land-Gazette-19-January-1828-p-3)*Hobart Town Courier and Van Diemens Land Gazette*, 19 January 1828, p. 3  
 
 
 # Citation: 

@@ -1,4 +1,4 @@
-# *Cobbet's Weekly Political Register*, 23 June 1827, p. 24  
+# *Cobbets Weekly Political Register*, 23 June 1827, p. 24  
   
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-2-July-1827-p-2)*Hampshire Portsmouth Telegraph*, 2 July 1827, p. 2  

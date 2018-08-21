@@ -1,4 +1,4 @@
-# *Cobbet's Weekly Political Register*, 22 December 1827, p. 2  
+# *Cobbets Weekly Political Register*, 22 December 1827, p. 2  
   
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-6-August-1828-p-3)*Australian*, 6 August 1828, p. 3  

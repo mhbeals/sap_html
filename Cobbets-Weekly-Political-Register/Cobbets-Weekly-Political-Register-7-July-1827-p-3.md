@@ -1,4 +1,4 @@
-# *Cobbet's Weekly Political Register*, 7 July 1827, p. 3  
+# *Cobbets Weekly Political Register*, 7 July 1827, p. 3  
   
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-8-July-1827-p-5)*Examiner*, 8 July 1827, p. 5  

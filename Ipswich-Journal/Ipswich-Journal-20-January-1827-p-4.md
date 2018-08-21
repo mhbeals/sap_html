@@ -1,7 +1,7 @@
 # *Ipswich Journal*, 20 January 1827, p. 4  
   
 ### Content from this page subsequently appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-2-February-1827-p-4)*The Times*, 2 February 1827, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Times/Times-2-February-1827-p-4)*Times*, 2 February 1827, p. 4  
 
 
 # Citation: 

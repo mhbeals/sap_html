@@ -1,4 +1,4 @@
-# *Cobbet's Weekly Political Register*, 29 December 1827, p. 15  
+# *Cobbets Weekly Political Register*, 29 December 1827, p. 15  
   
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-20-June-1828-p-3)*Sydney Gazette*, 20 June 1828, p. 3  

@@ -1,4 +1,4 @@
-# *Cobbet's Weekly Political Register*, 24 November 1827, p. 30  
+# *Cobbets Weekly Political Register*, 24 November 1827, p. 30  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Examiner/Examiner-11-November-1827-p-3)*Examiner*, 11 November 1827, p. 3  

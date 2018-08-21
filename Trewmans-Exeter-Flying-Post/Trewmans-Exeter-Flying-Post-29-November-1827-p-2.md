@@ -1,4 +1,4 @@
-# *Trewman's Exeter Flying Post*, 29 November 1827, p. 2  
+# *Trewmans Exeter Flying Post*, 29 November 1827, p. 2  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Caledonian-Mercury/Caledonian-Mercury-12-November-1827-p-4)*Caledonian Mercury*, 12 November 1827, p. 4  

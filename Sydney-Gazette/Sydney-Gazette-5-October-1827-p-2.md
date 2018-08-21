@@ -1,7 +1,7 @@
 # *Sydney Gazette*, 5 October 1827, p. 2  
   
 ### Content from this page previously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser /Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser -22-September-1827-p-6)*Hobart Town Gazette and Van Diemen's Land Advertiser *, 22 September 1827, p. 6  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser /Hobart-Town-Gazette-and-Van-Diemens-Land-Advertiser -22-September-1827-p-6)*Hobart Town Gazette and Van Diemens Land Advertiser *, 22 September 1827, p. 6  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-and-Tasmanian-Advertiser/Colonial-Times-and-Tasmanian-Advertiser-28-September-1827-p-3)*Colonial Times and Tasmanian Advertiser*, 28 September 1827, p. 3  
   
 ### Content from this page simultaneously appeared in:  

@@ -1,0 +1,45 @@
+# *Hobart Town Courier and Van Diemens Land Gazette*, 24 August 1838, p. 1  
+  
+### Content from this page previously appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial/True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial-13-July-1838-p-3)*True Colonist Van Diemens Land Political Despatch and Agricultural and Commercial*, 13 July 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-14-July-1838-p-1)*Colonist of Sydney*, 14 July 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Launceston-Advertiser/Launceston-Advertiser-19-July-1838-p-1)*Launceston Advertiser*, 19 July 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial/True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial-20-July-1838-p-1)*True Colonist Van Diemens Land Political Despatch and Agricultural and Commercial*, 20 July 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cornwall-Chronicle/Cornwall-Chronicle-21-July-1838-p-120)*Cornwall Chronicle*, 21 July 1838, p. 120  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Launceston-Advertiser/Launceston-Advertiser-26-July-1838-p-1)*Launceston Advertiser*, 26 July 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cornwall-Chronicle/Cornwall-Chronicle-28-July-1838-p-124)*Cornwall Chronicle*, 28 July 1838, p. 124  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-Hobart/Colonial-Times-Hobart-31-July-1838-p-1)*Colonial Times Hobart*, 31 July 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cornwall-Chronicle/Cornwall-Chronicle-4-August-1838-p-3)*Cornwall Chronicle*, 4 August 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Austral-Asiatic-Review/Austral-Asiatic-Review-7-August-1838-p-3)*Austral-Asiatic Review*, 7 August 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Launceston-Advertiser/Launceston-Advertiser-9-August-1838-p-1)*Launceston Advertiser*, 9 August 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cornwall-Chronicle/Cornwall-Chronicle-11-August-1838-p-4)*Cornwall Chronicle*, 11 August 1838, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-Hobart/Colonial-Times-Hobart-14-August-1838-p-1)*Colonial Times Hobart*, 14 August 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Austral-Asiatic-Review/Austral-Asiatic-Review-14-August-1838-p-3)*Austral-Asiatic Review*, 14 August 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial/True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial-17-August-1838-p-1)*True Colonist Van Diemens Land Political Despatch and Agricultural and Commercial*, 17 August 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial/True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial-17-August-1838-p-3)*True Colonist Van Diemens Land Political Despatch and Agricultural and Commercial*, 17 August 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-Hobart/Colonial-Times-Hobart-21-August-1838-p-1)*Colonial Times Hobart*, 21 August 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-Hobart/Colonial-Times-Hobart-21-August-1838-p-2)*Colonial Times Hobart*, 21 August 1838, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Austral-Asiatic-Review/Austral-Asiatic-Review-21-August-1838-p-1)*Austral-Asiatic Review*, 21 August 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Austral-Asiatic-Review/Austral-Asiatic-Review-21-August-1838-p-3)*Austral-Asiatic Review*, 21 August 1838, p. 3  
+  
+### Content from this page simultaneously appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial/True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial-24-August-1838-p-3)*True Colonist Van Diemens Land Political Despatch and Agricultural and Commercial*, 24 August 1838, p. 3  
+  
+### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-Hobart/Colonial-Times-Hobart-28-August-1838-p-1)*Colonial Times Hobart*, 28 August 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bents-News-and-Tasmanian-Register/Bents-News-and-Tasmanian-Register-31-August-1838-p-1)*Bents News and Tasmanian Register*, 31 August 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial/True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial-31-August-1838-p-3)*True Colonist Van Diemens Land Political Despatch and Agricultural and Commercial*, 31 August 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Austral-Asiatic-Review/Austral-Asiatic-Review-4-September-1838-p-3)*Austral-Asiatic Review*, 4 September 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-8-September-1838-p-1)*Colonist of Sydney*, 8 September 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-22-September-1838-p-4)*Colonist of Sydney*, 22 September 1838, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-26-September-1838-p-4)*Colonist of Sydney*, 26 September 1838, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-29-September-1838-p-4)*Colonist of Sydney*, 29 September 1838, p. 4  
+
+
+# Citation: 
+
+Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.1.0.* 14 August 2018. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
+
+# Nota Bona
+
+Bibliometric data is time consuming to produce but benefits us all. Please remember to cite or acknowledge this and any other bibliometric data you use in your research. All data is available CC-BY 4.0 at [https://github.com/mhbeals/sap_reprints](https://github.com/mhbeals/sap_reprints)

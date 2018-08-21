@@ -1,7 +1,7 @@
 # *Hampshire Portsmouth Telegraph*, 25 June 1827, p. 4  
   
 ### Content from this page simultaneously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-25-June-1827-p-7)*The Times*, 25 June 1827, p. 7  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Times/Times-25-June-1827-p-7)*Times*, 25 June 1827, p. 7  
 
 
 # Citation: 

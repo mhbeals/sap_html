@@ -1,4 +1,4 @@
-# *Trewman's Exeter Flying Post*, 29 March 1827, p. 3  
+# *Trewmans Exeter Flying Post*, 29 March 1827, p. 3  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hampshire-Portsmouth-Telegraph/Hampshire-Portsmouth-Telegraph-26-March-1827-p-1)*Hampshire Portsmouth Telegraph*, 26 March 1827, p. 1  

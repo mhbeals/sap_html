@@ -1,4 +1,4 @@
-# *Trewman's Exeter Flying Post*, 12 April 1827, p. 2  
+# *Trewmans Exeter Flying Post*, 12 April 1827, p. 2  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Bristol-Mercury/Bristol-Mercury-9-April-1827-p-2)*Bristol Mercury*, 9 April 1827, p. 2  

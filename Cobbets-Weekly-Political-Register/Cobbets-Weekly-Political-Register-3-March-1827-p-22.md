@@ -1,4 +1,4 @@
-# *Cobbet's Weekly Political Register*, 3 March 1827, p. 22  
+# *Cobbets Weekly Political Register*, 3 March 1827, p. 22  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Morning-Chronicle/Morning-Chronicle-26-February-1827-p-2)*Morning Chronicle*, 26 February 1827, p. 2  

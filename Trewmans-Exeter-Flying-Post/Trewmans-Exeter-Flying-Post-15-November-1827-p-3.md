@@ -1,4 +1,4 @@
-# *Trewman's Exeter Flying Post*, 15 November 1827, p. 3  
+# *Trewmans Exeter Flying Post*, 15 November 1827, p. 3  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=NorthWales-Chronicle/NorthWales-Chronicle-25-October-1827-p-3)*NorthWales Chronicle*, 25 October 1827, p. 3  

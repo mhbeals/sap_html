@@ -1,4 +1,4 @@
-# *Hobart Town Gazette and Van Diemen's Land Advertiser *, 25 August 1827, p. 6  
+# *Hobart Town Gazette and Van Diemens Land Advertiser *, 25 August 1827, p. 6  
   
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-10-September-1827-p-3)*Sydney Gazette*, 10 September 1827, p. 3  

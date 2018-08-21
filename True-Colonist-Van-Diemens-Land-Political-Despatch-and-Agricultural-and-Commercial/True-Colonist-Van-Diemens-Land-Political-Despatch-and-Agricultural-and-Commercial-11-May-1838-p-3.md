@@ -1,0 +1,60 @@
+# *True Colonist Van Diemens Land Political Despatch and Agricultural and Commercial*, 11 May 1838, p. 3  
+  
+### Content from this page previously appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Commercial-Journal-and-Advertiser/Commercial-Journal-and-Advertiser-7-April-1838-p-3)*Commercial Journal and Advertiser*, 7 April 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-7-April-1838-p-2)*Sydney General Trade List*, 7 April 1838, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-7-April-1838-p-3)*Colonist of Sydney*, 7 April 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Austral-Asiatic-Review/Austral-Asiatic-Review-10-April-1838-p-3)*Austral-Asiatic Review*, 10 April 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-10-April-1838-p-2)*Australian*, 10 April 1838, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=New-South-Wales-Government-Gazette/New-South-Wales-Government-Gazette-11-April-1838-p-2)*New South Wales Government Gazette*, 11 April 1838, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-11-April-1838-p-3)*Colonist of Sydney*, 11 April 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Commercial-Journal-and-Advertiser/Commercial-Journal-and-Advertiser-14-April-1838-p-3)*Commercial Journal and Advertiser*, 14 April 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-14-April-1838-p-3)*Sydney General Trade List*, 14 April 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-14-April-1838-p-3)*Colonist of Sydney*, 14 April 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-18-April-1838-p-3)*Colonist of Sydney*, 18 April 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-18-April-1838-p-4)*Colonist of Sydney*, 18 April 1838, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-21-April-1838-p-3)*Sydney General Trade List*, 21 April 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-21-April-1838-p-4)*Sydney General Trade List*, 21 April 1838, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-21-April-1838-p-4)*Colonist of Sydney*, 21 April 1838, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-25-April-1838-p-3)*Colonist of Sydney*, 25 April 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-28-April-1838-p-4)*Sydney General Trade List*, 28 April 1838, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-28-April-1838-p-4)*Colonist of Sydney*, 28 April 1838, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-2-May-1838-p-3)*Colonist of Sydney*, 2 May 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Commercial-Journal-and-Advertiser/Commercial-Journal-and-Advertiser-5-May-1838-p-3)*Commercial Journal and Advertiser*, 5 May 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-5-May-1838-p-3)*Sydney General Trade List*, 5 May 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cornwall-Chronicle/Cornwall-Chronicle-5-May-1838-p-76)*Cornwall Chronicle*, 5 May 1838, p. 76  
+  
+### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Commercial-Journal-and-Advertiser/Commercial-Journal-and-Advertiser-12-May-1838-p-3)*Commercial Journal and Advertiser*, 12 May 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-12-May-1838-p-3)*Sydney General Trade List*, 12 May 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-12-May-1838-p-3)*Colonist of Sydney*, 12 May 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Austral-Asiatic-Review/Austral-Asiatic-Review-15-May-1838-p-1)*Austral-Asiatic Review*, 15 May 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Commercial-Journal-and-Advertiser/Commercial-Journal-and-Advertiser-19-May-1838-p-3)*Commercial Journal and Advertiser*, 19 May 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-19-May-1838-p-2)*Sydney General Trade List*, 19 May 1838, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-19-May-1838-p-3)*Sydney General Trade List*, 19 May 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Commercial-Journal-and-Advertiser/Commercial-Journal-and-Advertiser-26-May-1838-p-3)*Commercial Journal and Advertiser*, 26 May 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-26-May-1838-p-3)*Sydney General Trade List*, 26 May 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-30-May-1838-p-3)*Colonist of Sydney*, 30 May 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-2-June-1838-p-2)*Sydney General Trade List*, 2 June 1838, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Austral-Asiatic-Review/Austral-Asiatic-Review-5-June-1838-p-3)*Austral-Asiatic Review*, 5 June 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-6-June-1838-p-3)*Colonist of Sydney*, 6 June 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-9-June-1838-p-2)*Sydney General Trade List*, 9 June 1838, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-9-June-1838-p-3)*Colonist of Sydney*, 9 June 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cornwall-Chronicle/Cornwall-Chronicle-9-June-1838-p-3)*Cornwall Chronicle*, 9 June 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cornwall-Chronicle/Cornwall-Chronicle-9-June-1838-p-4)*Cornwall Chronicle*, 9 June 1838, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Commercial-Journal-and-Advertiser/Commercial-Journal-and-Advertiser-13-June-1838-p-3)*Commercial Journal and Advertiser*, 13 June 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-13-June-1838-p-3)*Colonist of Sydney*, 13 June 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-16-June-1838-p-2)*Sydney General Trade List*, 16 June 1838, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-16-June-1838-p-3)*Colonist of Sydney*, 16 June 1838, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cornwall-Chronicle/Cornwall-Chronicle-16-June-1838-p-1)*Cornwall Chronicle*, 16 June 1838, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Cornwall-Chronicle/Cornwall-Chronicle-16-June-1838-p-100)*Cornwall Chronicle*, 16 June 1838, p. 100  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonist-Sydney/Colonist-Sydney-20-June-1838-p-3)*Colonist of Sydney*, 20 June 1838, p. 3  
+
+
+# Citation: 
+
+Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.1.0.* 14 August 2018. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
+
+# Nota Bona
+
+Bibliometric data is time consuming to produce but benefits us all. Please remember to cite or acknowledge this and any other bibliometric data you use in your research. All data is available CC-BY 4.0 at [https://github.com/mhbeals/sap_reprints](https://github.com/mhbeals/sap_reprints)

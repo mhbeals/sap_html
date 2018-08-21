@@ -1,4 +1,4 @@
-# *Cobbet's Weekly Political Register*, 4 August 1827, p. 10  
+# *Cobbets Weekly Political Register*, 4 August 1827, p. 10  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Leeds-Mercury/Leeds-Mercury-28-July-1827-p-3)*Leeds Mercury*, 28 July 1827, p. 3  

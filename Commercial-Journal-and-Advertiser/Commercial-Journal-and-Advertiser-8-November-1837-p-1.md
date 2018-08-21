@@ -1,0 +1,64 @@
+# *Commercial Journal and Advertiser*, 8 November 1837, p. 1  
+  
+### Content from this page previously appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-2-October-1837-p-3)*Sydney Herald*, 2 October 1837, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=New-South-Wales-Government-Gazette/New-South-Wales-Government-Gazette-4-October-1837-p-24)*New South Wales Government Gazette*, 4 October 1837, p. 24  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-7-October-1837-p-2)*Sydney General Trade List*, 7 October 1837, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-7-October-1837-p-1)*Sydney Gazette*, 7 October 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-14-October-1837-p-3)*Sydney General Trade List*, 14 October 1837, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-19-October-1837-p-1)*Sydney Herald*, 19 October 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-20-October-1837-p-1)*Australian*, 20 October 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-21-October-1837-p-3)*Sydney General Trade List*, 21 October 1837, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-21-October-1837-p-1)*Sydney Gazette*, 21 October 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-23-October-1837-p-1)*Sydney Herald*, 23 October 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-24-October-1837-p-1)*Sydney Gazette*, 24 October 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-26-October-1837-p-1)*Sydney Gazette*, 26 October 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-26-October-1837-p-1)*Sydney Herald*, 26 October 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial/True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial-27-October-1837-p-1)*True Colonist Van Diemens Land Political Despatch and Agricultural and Commercial*, 27 October 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial/True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial-27-October-1837-p-2)*True Colonist Van Diemens Land Political Despatch and Agricultural and Commercial*, 27 October 1837, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-28-October-1837-p-2)*Sydney General Trade List*, 28 October 1837, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-28-October-1837-p-1)*Sydney Gazette*, 28 October 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-31-October-1837-p-1)*Australian*, 31 October 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-31-October-1837-p-1)*Sydney Gazette*, 31 October 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-2-November-1837-p-1)*Sydney Gazette*, 2 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-2-November-1837-p-3)*Sydney Herald*, 2 November 1837, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-3-November-1837-p-1)*Australian*, 3 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-4-November-1837-p-2)*Sydney General Trade List*, 4 November 1837, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-4-November-1837-p-1)*Sydney Gazette*, 4 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-6-November-1837-p-1)*Sydney Herald*, 6 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-7-November-1837-p-1)*Australian*, 7 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-7-November-1837-p-1)*Sydney Gazette*, 7 November 1837, p. 1  
+  
+### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-9-November-1837-p-1)*Sydney Gazette*, 9 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-9-November-1837-p-1)*Sydney Herald*, 9 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-10-November-1837-p-1)*Australian*, 10 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-11-November-1837-p-2)*Sydney General Trade List*, 11 November 1837, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-11-November-1837-p-1)*Sydney Gazette*, 11 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-13-November-1837-p-1)*Sydney Herald*, 13 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-14-November-1837-p-1)*Australian*, 14 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-14-November-1837-p-1)*Sydney Gazette*, 14 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-16-November-1837-p-1)*Sydney Gazette*, 16 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-16-November-1837-p-1)*Sydney Herald*, 16 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-17-November-1837-p-1)*Australian*, 17 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial/True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial-17-November-1837-p-775)*True Colonist Van Diemens Land Political Despatch and Agricultural and Commercial*, 17 November 1837, p. 775  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-20-November-1837-p-1)*Sydney Herald*, 20 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Australian/Australian-21-November-1837-p-1)*Australian*, 21 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-21-November-1837-p-1)*Sydney Gazette*, 21 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-23-November-1837-p-1)*Sydney Herald*, 23 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-25-November-1837-p-2)*Sydney General Trade List*, 25 November 1837, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-30-November-1837-p-1)*Sydney Gazette*, 30 November 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-2-December-1837-p-2)*Sydney General Trade List*, 2 December 1837, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-4-December-1837-p-1)*Sydney Herald*, 4 December 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-9-December-1837-p-2)*Sydney General Trade List*, 9 December 1837, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial/True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial-15-December-1837-p-1)*True Colonist Van Diemens Land Political Despatch and Agricultural and Commercial*, 15 December 1837, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-16-December-1837-p-3)*Sydney General Trade List*, 16 December 1837, p. 3  
+
+
+# Citation: 
+
+Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.1.0.* 14 August 2018. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
+
+# Nota Bona
+
+Bibliometric data is time consuming to produce but benefits us all. Please remember to cite or acknowledge this and any other bibliometric data you use in your research. All data is available CC-BY 4.0 at [https://github.com/mhbeals/sap_reprints](https://github.com/mhbeals/sap_reprints)

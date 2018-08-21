@@ -1,7 +1,7 @@
 # *Morning Chronicle*, 28 May 1827, p. 2  
   
 ### Content from this page simultaneously appeared in:  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=The-Times/The-Times-28-May-1827-p-2)*The Times*, 28 May 1827, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Times/Times-28-May-1827-p-2)*Times*, 28 May 1827, p. 2  
 
 
 # Citation: 

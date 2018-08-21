@@ -1,4 +1,4 @@
-# *Trewman's Exeter Flying Post*, 1 March 1827, p. 3  
+# *Trewmans Exeter Flying Post*, 1 March 1827, p. 3  
   
 ### Content from this page previously appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Ipswich-Journal/Ipswich-Journal-24-February-1827-p-2)*Ipswich Journal*, 24 February 1827, p. 2  

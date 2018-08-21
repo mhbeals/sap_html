@@ -1,4 +1,4 @@
-# *Cobbet's Weekly Political Register*, 20 January 1827, p. 10  
+# *Cobbets Weekly Political Register*, 20 January 1827, p. 10  
   
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Glasgow-Herald/Glasgow-Herald-26-January-1827-p-4)*Glasgow Herald*, 26 January 1827, p. 4  

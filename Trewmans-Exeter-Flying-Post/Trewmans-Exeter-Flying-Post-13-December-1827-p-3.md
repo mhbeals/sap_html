@@ -1,4 +1,4 @@
-# *Trewman's Exeter Flying Post*, 13 December 1827, p. 3  
+# *Trewmans Exeter Flying Post*, 13 December 1827, p. 3  
   
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Liverpool-Mercury/Liverpool-Mercury-14-December-1827-p-7)*Liverpool Mercury*, 14 December 1827, p. 7  

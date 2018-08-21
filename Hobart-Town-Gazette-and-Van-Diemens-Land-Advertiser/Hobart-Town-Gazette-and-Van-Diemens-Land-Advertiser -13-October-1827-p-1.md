@@ -1,8 +1,8 @@
-# *Hobart Town Gazette and Van Diemen's Land Advertiser *, 13 October 1827, p. 1  
+# *Hobart Town Gazette and Van Diemens Land Advertiser *, 13 October 1827, p. 1  
   
 ### Content from this page subsequently appeared in:  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Tasmanian/Tasmanian-18-October-1827-p-1)*Tasmanian*, 18 October 1827, p. 1  
-[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Courier/Hobart-Town-Courier-20-October-1827-p-4)*Hobart Town Courier*, 20 October 1827, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Courier-and-Van-Diemens-Land-Gazette/Hobart-Town-Courier-and-Van-Diemens-Land-Gazette-20-October-1827-p-4)*Hobart Town Courier and Van Diemens Land Gazette*, 20 October 1827, p. 4  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-31-October-1827-p-2)*Sydney Gazette*, 31 October 1827, p. 2  
 [![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Gazette/Sydney-Gazette-31-October-1827-p-3)*Sydney Gazette*, 31 October 1827, p. 3  
 

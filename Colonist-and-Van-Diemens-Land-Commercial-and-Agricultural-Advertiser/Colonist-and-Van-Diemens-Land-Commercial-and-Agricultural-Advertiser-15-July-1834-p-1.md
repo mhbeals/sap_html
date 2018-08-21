@@ -1,0 +1,51 @@
+# *Colonist and Van Diemens Land Commercial and Agricultural Advertiser*, 15 July 1834, p. 1  
+  
+### Content from this page previously appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-5-June-1834-p-4)*Sydney Herald*, 5 June 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-7-June-1834-p-2)*Sydney General Trade List*, 7 June 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-12-June-1834-p-4)*Sydney Herald*, 12 June 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-14-June-1834-p-3)*Sydney General Trade List*, 14 June 1834, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-Hobart/Colonial-Times-Hobart-17-June-1834-p-1)*Colonial Times Hobart*, 17 June 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-19-June-1834-p-3)*Sydney Herald*, 19 June 1834, p. 3  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-Hobart/Colonial-Times-Hobart-24-June-1834-p-2)*Colonial Times Hobart*, 24 June 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trumpeter-General/Trumpeter-General-24-June-1834-p-1)*Trumpeter General*, 24 June 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-26-June-1834-p-4)*Sydney Herald*, 26 June 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Tasmanian/Tasmanian-27-June-1834-p-2)*Tasmanian*, 27 June 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-28-June-1834-p-2)*Sydney General Trade List*, 28 June 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-Hobart/Colonial-Times-Hobart-1-July-1834-p-2)*Colonial Times Hobart*, 1 July 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trumpeter-General/Trumpeter-General-1-July-1834-p-2)*Trumpeter General*, 1 July 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-3-July-1834-p-4)*Sydney Herald*, 3 July 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-Hobart/Colonial-Times-Hobart-8-July-1834-p-1)*Colonial Times Hobart*, 8 July 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-Hobart/Colonial-Times-Hobart-8-July-1834-p-2)*Colonial Times Hobart*, 8 July 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Courier-and-Van-Diemens-Land-Gazette/Hobart-Town-Courier-and-Van-Diemens-Land-Gazette-11-July-1834-p-1)*Hobart Town Courier and Van Diemens Land Gazette*, 11 July 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trumpeter-General/Trumpeter-General-11-July-1834-p-1)*Trumpeter General*, 11 July 1834, p. 1  
+  
+### Content from this page simultaneously appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-Hobart/Colonial-Times-Hobart-15-July-1834-p-2)*Colonial Times Hobart*, 15 July 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trumpeter-General/Trumpeter-General-15-July-1834-p-1)*Trumpeter General*, 15 July 1834, p. 1  
+  
+### Content from this page subsequently appeared in:  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-17-July-1834-p-4)*Sydney Herald*, 17 July 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Courier-and-Van-Diemens-Land-Gazette/Hobart-Town-Courier-and-Van-Diemens-Land-Gazette-18-July-1834-p-1)*Hobart Town Courier and Van Diemens Land Gazette*, 18 July 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-General-Trade-List/Sydney-General-Trade-List-19-July-1834-p-2)*Sydney General Trade List*, 19 July 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=New-South-Wales-Government-Gazette/New-South-Wales-Government-Gazette-23-July-1834-p-10)*New South Wales Government Gazette*, 23 July 1834, p. 10  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Hobart-Town-Courier-and-Van-Diemens-Land-Gazette/Hobart-Town-Courier-and-Van-Diemens-Land-Gazette-25-July-1834-p-1)*Hobart Town Courier and Van Diemens Land Gazette*, 25 July 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trumpeter-General/Trumpeter-General-29-July-1834-p-1)*Trumpeter General*, 29 July 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-31-July-1834-p-4)*Sydney Herald*, 31 July 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trumpeter-General/Trumpeter-General-1-August-1834-p-2)*Trumpeter General*, 1 August 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Colonial-Times-Hobart/Colonial-Times-Hobart-5-August-1834-p-1)*Colonial Times Hobart*, 5 August 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trumpeter-General/Trumpeter-General-5-August-1834-p-2)*Trumpeter General*, 5 August 1834, p. 2  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Sydney-Herald/Sydney-Herald-7-August-1834-p-4)*Sydney Herald*, 7 August 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial/True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial-12-August-1834-p-4)*True Colonist Van Diemens Land Political Despatch and Agricultural and Commercial*, 12 August 1834, p. 4  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trumpeter-General/Trumpeter-General-12-August-1834-p-1)*Trumpeter General*, 12 August 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=Trumpeter-General/Trumpeter-General-13-August-1834-p-1)*Trumpeter General*, 13 August 1834, p. 1  
+[![Hand](http://scissorsandpaste.net/wp-content/uploads/2017/06/smallhandpointer.png) ](http://scissorsandpaste.net/results?sap=True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial/True-Colonist-Van-Diemens-Land-Political-Despatch-and-Agricultural-and-Commercial-19-August-1834-p-2)*True Colonist Van Diemens Land Political Despatch and Agricultural and Commercial*, 19 August 1834, p. 2  
+
+
+# Citation: 
+
+Beals. M. H. *Scissors and Paste Database: A Map of Reprinting and Reuse in the Anglophone Newspaper Press v.1.1.0.* 14 August 2018. Available at [https://github.com/mhbeals/sap_reprints/](https://github.com/mhbeals/sap_reprints/). 
+
+# Nota Bona
+
+Bibliometric data is time consuming to produce but benefits us all. Please remember to cite or acknowledge this and any other bibliometric data you use in your research. All data is available CC-BY 4.0 at [https://github.com/mhbeals/sap_reprints](https://github.com/mhbeals/sap_reprints)
